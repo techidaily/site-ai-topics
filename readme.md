@@ -1,6 +1,6 @@
-# TechiDaily
+# Ai Topics Site
 
-Welcome to [https://android-transfer.techidaily.com](https://android-transfer.techidaily.com)
+Welcome to [https://ai-topics.techidaily.com](https://ai-topics.techidaily.com)
 
 ## Publish
 
