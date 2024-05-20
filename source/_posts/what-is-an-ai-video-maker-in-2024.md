@@ -1,7 +1,7 @@
 ---
 title: What Is an AI Video Maker, In 2024
-date: 2024-04-20T01:26:23.545Z
-updated: 2024-04-21T01:26:23.545Z
+date: 2024-05-19T02:36:28.891Z
+updated: 2024-05-20T02:36:28.891Z
 tags: 
   - ai
   - ai-insight
@@ -1397,3 +1397,4 @@ To address these risks, regulatory agencies and relevant stakeholders need to es
 <li><a href="https://fix-guide.techidaily.com/solved-warning-camera-failed-on-infinix-hot-30i-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Solved Warning Camera Failed on Infinix Hot 30i | Dr.fone</u></a></li>
 <li><a href="https://easy-unlock-android.techidaily.com/how-to-lock-apps-on-nubia-red-magic-9-proplus-to-protect-your-individual-information-by-drfone-android/"><u>How to Lock Apps on Nubia Red Magic 9 Pro+ to Protect Your Individual Information</u></a></li>
 </ul></div>
+

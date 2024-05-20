@@ -1,7 +1,7 @@
 ---
 title: Updated What Is an AI Video Generator?
-date: 2024-04-20T01:26:23.262Z
-updated: 2024-04-21T01:26:23.262Z
+date: 2024-05-19T02:36:28.888Z
+updated: 2024-05-20T02:36:28.888Z
 tags: 
   - ai
   - ai-insight
@@ -1536,3 +1536,4 @@ In summary, the main difference lies in their primary functions: an AI video mak
 <li><a href="https://techidaily.com/the-way-to-get-back-lost-videos-from-tecno-spark-10c-by-fonelab-android-recover-video/"><u>The way to get back lost videos from Tecno Spark 10C</u></a></li>
 <li><a href="https://screen-mirror.techidaily.com/in-2024-apple-iphone-15-pro-max-screen-mirroring-you-must-know-drfone-by-drfone-ios/"><u>In 2024, Apple iPhone 15 Pro Max Screen Mirroring You Must Know | Dr.fone</u></a></li>
 </ul></div>
+

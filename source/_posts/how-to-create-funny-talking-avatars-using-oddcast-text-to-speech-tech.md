@@ -1,7 +1,7 @@
 ---
 title: How to Create Funny Talking Avatars Using Oddcast Text to Speech Tech
-date: 2024-04-20T01:27:16.589Z
-updated: 2024-04-21T01:27:16.589Z
+date: 2024-05-19T02:36:31.118Z
+updated: 2024-05-20T02:36:31.118Z
 tags: 
   - ai text to speech
   - text to speech
@@ -1717,3 +1717,4 @@ To produce AI voices, you would require effective TTS converters. One of the com
 <li><a href="https://fake-location.techidaily.com/how-to-simulate-gps-movement-in-ar-games-on-vivo-v30-pro-drfone-by-drfone-virtual-android/"><u>How to Simulate GPS Movement in AR games On Vivo V30 Pro? | Dr.fone</u></a></li>
 <li><a href="https://fake-location.techidaily.com/how-to-fake-gps-on-honor-90-lite-for-mobile-legends-drfone-by-drfone-virtual-android/"><u>How To Fake GPS On Honor 90 Lite For Mobile Legends? | Dr.fone</u></a></li>
 </ul></div>
+

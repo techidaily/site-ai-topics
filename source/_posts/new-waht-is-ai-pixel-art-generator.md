@@ -1,7 +1,7 @@
 ---
 title: New Waht Is AI Pixel Art Generator?
-date: 2024-04-20T01:26:14.221Z
-updated: 2024-04-21T01:26:14.221Z
+date: 2024-05-19T02:36:28.494Z
+updated: 2024-05-20T02:36:28.494Z
 tags: 
   - ai
   - ai-insight
@@ -1524,3 +1524,4 @@ Ultimately, the decision to use AI-generated headshots in professional settings 
 <li><a href="https://ai-video.techidaily.com/2024-approved-unlocking-global-audiences-top-video-language-converters/"><u>2024 Approved Unlocking Global Audiences Top Video Language Converters</u></a></li>
 <li><a href="https://android-location-track.techidaily.com/in-2024-top-10-best-spy-watches-for-your-huawei-nova-y71-drfone-by-drfone-virtual-android/"><u>In 2024, Top 10 Best Spy Watches For your Huawei Nova Y71 | Dr.fone</u></a></li>
 </ul></div>
+

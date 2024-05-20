@@ -1,7 +1,7 @@
 ---
 title: New How to Create Funny Talking Avatars Using Oddcast Text to Speech Tech
-date: 2024-04-20T01:27:28.551Z
-updated: 2024-04-21T01:27:28.551Z
+date: 2024-05-19T02:36:31.779Z
+updated: 2024-05-20T02:36:31.779Z
 tags: 
   - ai text to speech
   - text to speech
@@ -1624,3 +1624,4 @@ In a world where technology is constantly pushing boundaries, realistic TTS AI v
 <li><a href="https://ios-unlock.techidaily.com/how-to-unlock-iphone-se-2022-passcode-without-itunes-without-knowing-passcode-by-drfone-ios/"><u>How to Unlock iPhone SE (2022) Passcode without iTunes without Knowing Passcode?</u></a></li>
 <li><a href="https://techidaily.com/turn-off-screen-lock-xiaomi-redmi-k70-by-drfone-android-unlock-android-unlock/"><u>Turn Off Screen Lock - Xiaomi Redmi K70</u></a></li>
 </ul></div>
+
