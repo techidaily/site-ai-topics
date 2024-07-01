@@ -1,7 +1,7 @@
 ---
 title: Updated 2024 Approved What Is AI Influencer?
-date: 2024-05-19T02:36:29.851Z
-updated: 2024-05-20T02:36:29.851Z
+date: 2024-06-30T14:24:51.505Z
+updated: 2024-07-01T14:24:51.505Z
 tags: 
   - ai
   - ai-insight
@@ -10,7 +10,7 @@ categories:
 description: This Article Describes Updated 2024 Approved What Is AI Influencer?
 excerpt: This Article Describes Updated 2024 Approved What Is AI Influencer?
 keywords: ai advertising,what is ai pixel art generator,exploring key components and creation process of ai face generators,ai art generator,ai generated text,ai influencer,what is ai tool
-thumbnail: https://www.lifewire.com/thmb/eYqxG8EorGAmKcW0zOiG4PnWFkw=/400x300/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/homeweatherstation-34f9e9a9aaf64446a8f21ff05991c079.jpg
+thumbnail: https://thmb.techidaily.com/9530a6a7ae2d76ba480cbada332a623fd47509bd2903fa4cfebcaa0c3ca3de95.jpg
 ---
 
 ## What Is AI Influencer?

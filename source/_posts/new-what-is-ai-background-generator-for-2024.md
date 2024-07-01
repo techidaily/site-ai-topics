@@ -1,7 +1,7 @@
 ---
 title: New What Is AI Background Generator for 2024
-date: 2024-05-19T02:36:29.618Z
-updated: 2024-05-20T02:36:29.618Z
+date: 2024-06-30T14:24:49.409Z
+updated: 2024-07-01T14:24:49.409Z
 tags: 
   - ai
   - ai-insight
@@ -10,7 +10,7 @@ categories:
 description: This Article Describes New What Is AI Background Generator for 2024
 excerpt: This Article Describes New What Is AI Background Generator for 2024
 keywords: ai face generators,ai pixel art generator,ai background generator,what is ai pixel art generator,ai text generator,ai art generator,ai portrait generator
-thumbnail: https://www.lifewire.com/thmb/5tD-_gpIrKxGqi4E54Dp4SLyqMY=/400x300/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/On-Line-Job-Search-aa2565e859bd43a2aa34dfa1537dbd50.jpg
+thumbnail: https://thmb.techidaily.com/51dee520b6548ad713de001f9d872ff359ce7157fc9657d20a61cd8374fcc9ae.jpg
 ---
 
 ## What Is AI Background Generator?

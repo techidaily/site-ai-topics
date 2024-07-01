@@ -1,7 +1,7 @@
 ---
 title: Updated In 2024, Power of AI Thumbnail Generators
-date: 2024-05-19T02:36:30.353Z
-updated: 2024-05-20T02:36:30.353Z
+date: 2024-06-30T14:24:51.768Z
+updated: 2024-07-01T14:24:51.768Z
 tags: 
   - ai
   - ai-insight
@@ -10,7 +10,7 @@ categories:
 description: This Article Describes Updated In 2024, Power of AI Thumbnail Generators
 excerpt: This Article Describes Updated In 2024, Power of AI Thumbnail Generators
 keywords: ai portrait generator,what is ai pixel art generator,ai pixel art generator,ai thumbnail generator,the power of ai thumbnail generators,ai generated text,ai text generator
-thumbnail: https://www.lifewire.com/thmb/TKoUz7zi8lw5cyOA93bOwDLfNYs=/400x300/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/the_room-56cc7f225f9b5879cc590941.png
+thumbnail: https://thmb.techidaily.com/468b7a50fb837089e10cec38dd44fa01aaab4078b704b313fd2f69558ac117bb.png
 ---
 
 ## The Power of AI Thumbnail Generators

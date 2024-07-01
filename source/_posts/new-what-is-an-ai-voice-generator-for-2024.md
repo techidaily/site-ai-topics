@@ -1,7 +1,7 @@
 ---
 title: New What Is an AI Voice Generator for 2024
-date: 2024-05-19T02:36:30.591Z
-updated: 2024-05-20T02:36:30.591Z
+date: 2024-06-30T14:24:38.859Z
+updated: 2024-07-01T14:24:38.859Z
 tags: 
   - ai
   - ai-insight
@@ -10,7 +10,7 @@ categories:
 description: This Article Describes New What Is an AI Voice Generator for 2024
 excerpt: This Article Describes New What Is an AI Voice Generator for 2024
 keywords: ai voice generator,ai portrait generator,ai art generator,ai text generator,what is ai pixel art generator,ai game generator,ai face generators
-thumbnail: https://www.lifewire.com/thmb/FFBWrSKUv10PDo1VV6r976n9RLQ=/400x300/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/linksys-default-password-list-2619153-5fccecc7c0b04133b2202a1fa9e8d37a.png
+thumbnail: https://thmb.techidaily.com/75e496d7d03af882c809a7273c9e1eb1d9baeae9a3a5a4a6ed566b778061c9ff.png
 ---
 
 ## What Is an AI Voice Generator?

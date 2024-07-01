@@ -1,7 +1,7 @@
 ---
 title: Updated In 2024, What Is AI Text to Video?
-date: 2024-05-19T02:36:30.226Z
-updated: 2024-05-20T02:36:30.226Z
+date: 2024-06-30T14:24:42.755Z
+updated: 2024-07-01T14:24:42.755Z
 tags: 
   - ai
   - ai-insight
@@ -10,7 +10,7 @@ categories:
 description: This Article Describes Updated In 2024, What Is AI Text to Video?
 excerpt: This Article Describes Updated In 2024, What Is AI Text to Video?
 keywords: ai video generator,ai voice text to speech,what is ai tool,what is ai pixel art generator,ai text to video,ai generated text,ai video editor
-thumbnail: https://www.lifewire.com/thmb/sRg_08XfVq4XQxaZ8LbMjkBmMPo=/400x300/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/GettyImages-534572567-56facec43df78c784197b92d.jpg
+thumbnail: https://thmb.techidaily.com/271cc892260da7f0b1d8f207b3fb271cd7c70ce8ff0fa954ebc9cead95a6f721.jpg
 ---
 
 ## What Is AI Text to Video?

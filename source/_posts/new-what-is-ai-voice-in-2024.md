@@ -1,7 +1,7 @@
 ---
 title: New What Is AI Voice, In 2024
-date: 2024-05-19T02:36:30.694Z
-updated: 2024-05-20T02:36:30.694Z
+date: 2024-06-30T14:24:39.929Z
+updated: 2024-07-01T14:24:39.929Z
 tags: 
   - ai
   - ai-insight
@@ -10,7 +10,7 @@ categories:
 description: This Article Describes New What Is AI Voice, In 2024
 excerpt: This Article Describes New What Is AI Voice, In 2024
 keywords: ai art generator,ai voice,ai voice text to speech,ai voice generator,what is ai tool,what is ai pixel art generator,ai voice over
-thumbnail: https://www.lifewire.com/thmb/2zy8MTQaG4uUA0T7RXXxi-EpxMA=/360x240/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/ps5controller-0d702b25f7fa47b482999811cfc7af39.jpg
+thumbnail: https://thmb.techidaily.com/36cb4ddf3fc78c71836e11f4a803426f35040ec4e34c37b6c57cca04ad1d4891.jpg
 ---
 
 ## What Is AI Voice Over?

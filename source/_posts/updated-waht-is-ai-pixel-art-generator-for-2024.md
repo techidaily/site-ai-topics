@@ -1,7 +1,7 @@
 ---
 title: Updated Waht Is AI Pixel Art Generator for 2024
-date: 2024-05-19T02:36:29.998Z
-updated: 2024-05-20T02:36:29.998Z
+date: 2024-06-30T14:24:41.525Z
+updated: 2024-07-01T14:24:41.525Z
 tags: 
   - ai
   - ai-insight
@@ -10,7 +10,7 @@ categories:
 description: This Article Describes Updated Waht Is AI Pixel Art Generator for 2024
 excerpt: This Article Describes Updated Waht Is AI Pixel Art Generator for 2024
 keywords: ai portrait generator,ai pixel art generator,ai portrait generator getting closer to the artistic marvels,ai text generator,ai generated text,what is ai pixel art generator,ai art generator
-thumbnail: https://www.lifewire.com/thmb/vyzcJX9d4xPRDFBKmvNTGXpael0=/400x300/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/GettyImages-944229620-9cff560054804b72a431e9492c7445b4.jpg
+thumbnail: https://thmb.techidaily.com/e271cbb6eb6a65ff2648f6dddd1fc0c078a843660eba98a715724fa951b431ee.jpg
 ---
 
 ## Waht Is AI Pixel Art Generator?

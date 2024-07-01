@@ -1,7 +1,7 @@
 ---
 title: Updated In 2024, What Is an AI Artist?
-date: 2024-05-19T02:36:29.462Z
-updated: 2024-05-20T02:36:29.462Z
+date: 2024-06-30T14:24:41.596Z
+updated: 2024-07-01T14:24:41.596Z
 tags: 
   - ai
   - ai-insight
@@ -10,7 +10,7 @@ categories:
 description: This Article Describes Updated In 2024, What Is an AI Artist?
 excerpt: This Article Describes Updated In 2024, What Is an AI Artist?
 keywords: exploring key components and creation process of ai face generators,ai pixel art generator,ai art generator,what is ai pixel art generator,ai advertising,ai artist,what is ai tool
-thumbnail: https://www.lifewire.com/thmb/1X3sRGX1kbV-Ydn8ceXfqTlOH6I=/400x300/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/african-american-woman-opening-packages-of-shoes-on-sofa-580503483-5a735094d8fdd50036b63f8a.jpg
+thumbnail: https://thmb.techidaily.com/9ca2eff6ae26123de716ede19623049b700dbda01116c41da9ae37331ba659b6.jpg
 ---
 
 ## What Is an AI Artist?
