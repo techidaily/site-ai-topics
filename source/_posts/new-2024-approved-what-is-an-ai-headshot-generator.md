@@ -1,7 +1,7 @@
 ---
 title: New 2024 Approved What Is an AI Headshot Generator?
-date: 2024-05-19T02:36:29.829Z
-updated: 2024-05-20T02:36:29.829Z
+date: 2024-07-08T02:51:48.774Z
+updated: 2024-07-09T02:51:48.774Z
 tags: 
   - ai
   - ai-insight
@@ -10,7 +10,7 @@ categories:
 description: This Article Describes New 2024 Approved What Is an AI Headshot Generator?
 excerpt: This Article Describes New 2024 Approved What Is an AI Headshot Generator?
 keywords: ai text generator,ai art generator,what is ai pixel art generator,ai background generator,ai pixel art generator,ai headshot generator,exploring key components and creation process of ai face generators
-thumbnail: https://www.lifewire.com/thmb/QSOkVMBCO__10c9yExi2xlfXUGg=/400x300/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/GettyImages-626970032-497800518dac4d6cafa0dc19b953f1ff.jpg
+thumbnail: https://thmb.techidaily.com/5996397f505d52b0f60ffe77c36fd8859621590a57dd0707f44eeaa06c560dbc.jpg
 ---
 
 ## What Is an AI Headshot Generator?

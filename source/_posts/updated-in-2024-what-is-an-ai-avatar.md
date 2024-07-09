@@ -1,7 +1,7 @@
 ---
 title: Updated In 2024, What Is an AI Avatar?
-date: 2024-05-19T02:36:29.541Z
-updated: 2024-05-20T02:36:29.541Z
+date: 2024-07-08T02:51:21.720Z
+updated: 2024-07-09T02:51:21.720Z
 tags: 
   - ai
   - ai-insight
@@ -10,7 +10,7 @@ categories:
 description: This Article Describes Updated In 2024, What Is an AI Avatar?
 excerpt: This Article Describes Updated In 2024, What Is an AI Avatar?
 keywords: ai avatar,what is ai tool,talking avatar,ai art generator,ai generated text,ai artist,what is ai pixel art generator
-thumbnail: https://www.lifewire.com/thmb/4MzQVD7hvg3LqrJguvtCUGY_xnA=/400x300/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/GettyImages-990620130-ec2a7076e3f043bfa4f540b72d2034c6.jpg
+thumbnail: https://thmb.techidaily.com/122b9bb2737079496d6a2d69ef766a3b3b8a091bd4f5906c27990e96a64caabf.jpg
 ---
 
 ## What Is an AI Avatar?

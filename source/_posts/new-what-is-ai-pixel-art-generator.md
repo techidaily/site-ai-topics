@@ -1,7 +1,7 @@
 ---
 title: New What Is AI Pixel Art Generator?
-date: 2024-05-19T02:36:29.307Z
-updated: 2024-05-20T02:36:29.307Z
+date: 2024-07-08T02:51:56.025Z
+updated: 2024-07-09T02:51:56.025Z
 tags: 
   - ai
   - ai-insight
@@ -10,7 +10,7 @@ categories:
 description: This Article Describes New What Is AI Pixel Art Generator?
 excerpt: This Article Describes New What Is AI Pixel Art Generator?
 keywords: ai pixel art generator,ai art generator,ai text generator,ai portrait generator,what is ai pixel art generator,ai script generator,ai selfie generator
-thumbnail: https://www.lifewire.com/thmb/EcB--O002zUEaSk7QJHgsZsgFyA=/540x405/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/GettyImages-1198110246-e12a30f2b10645edb984dc66113911c9.jpg
+thumbnail: https://thmb.techidaily.com/51c7e118bec96598bc9d2d2c18cf903e1dca3cd5201c33fd6a45fd74bf88fe0d.jpg
 ---
 
 ## What Is AI Pixel Art Generator?

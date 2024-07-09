@@ -1,7 +1,7 @@
 ---
 title: New What Is AI Voice Over?
-date: 2024-05-19T02:36:29.017Z
-updated: 2024-05-20T02:36:29.017Z
+date: 2024-07-08T02:51:53.785Z
+updated: 2024-07-09T02:51:53.785Z
 tags: 
   - ai
   - ai-insight
@@ -10,7 +10,7 @@ categories:
 description: This Article Describes New What Is AI Voice Over?
 excerpt: This Article Describes New What Is AI Voice Over?
 keywords: what is ai tool,ai voice,ai art generator,ai voice over,what is ai pixel art generator,ai voice text to speech,ai voice generator
-thumbnail: https://www.lifewire.com/thmb/j6BDiuyaUokwtXDLEnyA5LApr9c=/400x300/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/1LW4062264-InCar6-1500-5b803f8ec9e77c0025d3f4de.jpg
+thumbnail: https://thmb.techidaily.com/f6caddae96019a4142339a6d719f3ef49075dd557e8c99c8c7fa75aee528315d.jpg
 ---
 
 ## What Is AI Voice Over?

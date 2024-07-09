@@ -1,7 +1,7 @@
 ---
 title: New What Is AI Marketing, In 2024
-date: 2024-05-19T02:36:29.916Z
-updated: 2024-05-20T02:36:29.916Z
+date: 2024-07-08T02:51:39.742Z
+updated: 2024-07-09T02:51:39.742Z
 tags: 
   - ai
   - ai-insight
@@ -10,7 +10,7 @@ categories:
 description: This Article Describes New What Is AI Marketing, In 2024
 excerpt: This Article Describes New What Is AI Marketing, In 2024
 keywords: ai advertising,what is ai tool,what is ai pixel art generator,ai artist,ai marketing,ai presentation maker,ai portrait generator getting closer to the artistic marvels
-thumbnail: https://www.lifewire.com/thmb/LszZcaAEzHRXWm3K0xWEG-T8gus=/400x300/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/handstypingonkeyboardCROPPED-6b13200ac0d24ef58817343cc4975ebd.jpg
+thumbnail: https://thmb.techidaily.com/984f643c4b4f7bae0c2654dd17f8e46d49464b1fbd02ad27cef488f7c4915f8e.jpg
 ---
 
 ## What Is AI Marketing?

@@ -1,7 +1,7 @@
 ---
 title: New In 2024, What Is AI API?
-date: 2024-05-19T02:36:29.383Z
-updated: 2024-05-20T02:36:29.383Z
+date: 2024-07-08T02:51:16.458Z
+updated: 2024-07-09T02:51:16.458Z
 tags: 
   - ai
   - ai-insight
@@ -10,7 +10,7 @@ categories:
 description: This Article Describes New In 2024, What Is AI API?
 excerpt: This Article Describes New In 2024, What Is AI API?
 keywords: ai text generator,ai advertising,ai pixel art generator,ai art generator,ai api,what is ai tool,what is ai pixel art generator
-thumbnail: https://www.lifewire.com/thmb/WSLZcqxwmXkq850tQOgpRjODDjE=/400x300/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/football-referee-signaling-touchdown-in-stadium-599944339-5a84cb9e875db900367df025.jpg
+thumbnail: https://thmb.techidaily.com/c72cccdf9cacc0fda207b45b24ab86cf2fde475b85a4b94012ab008856dbcd1d.jpg
 ---
 
 ## What Is AI API?

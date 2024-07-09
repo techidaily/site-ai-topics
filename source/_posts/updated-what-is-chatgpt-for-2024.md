@@ -1,7 +1,7 @@
 ---
 title: Updated What Is ChatGPT for 2024
-date: 2024-05-19T02:36:30.730Z
-updated: 2024-05-20T02:36:30.730Z
+date: 2024-07-08T02:51:54.860Z
+updated: 2024-07-09T02:51:54.860Z
 tags: 
   - ai
   - ai-insight
@@ -10,7 +10,7 @@ categories:
 description: This Article Describes Updated What Is ChatGPT for 2024
 excerpt: This Article Describes Updated What Is ChatGPT for 2024
 keywords: chat gpt,ai script generator,what is ai tool,exploring key components and creation process of ai face generators,ai text generator,ai generated text,what is ai pixel art generator
-thumbnail: https://www.lifewire.com/thmb/BFplsHvF2W-tN_GPJVyxOAwi8YM=/400x300/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/E-reader-57b936e05f9b58cdfd3e07e1.jpg
+thumbnail: https://thmb.techidaily.com/98cce883f8c6d6df0bb852da7eb40767e5514e4304dfa4fcbf005c1298bed966.jpg
 ---
 
 ## What Is ChatGPT?
