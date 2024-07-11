@@ -1,7 +1,7 @@
 ---
 title: Updated Top List Best 5 Tools for Creating Talking Avatars
-date: 2024-05-19T02:36:35.603Z
-updated: 2024-05-20T02:36:35.603Z
+date: 2024-07-10T13:23:47.872Z
+updated: 2024-07-11T13:23:47.872Z
 tags: 
   - ai photos
   - talking photos
@@ -10,7 +10,7 @@ categories:
 description: This Article Describes Updated Top List Best 5 Tools for Creating Talking Avatars
 excerpt: This Article Describes Updated Top List Best 5 Tools for Creating Talking Avatars
 keywords: talking avatar creator,top 10 ai talking avatars revolutionizing communication,talking avatar generators,create talking cartoon images using top tools,users guide how to create photo talking videos with the best tools,create talking cartoon images,top list best 5 tools for creating talking avatars
-thumbnail: https://www.lifewire.com/thmb/85rwStNr21lvFIjCfmY8ErdogYI=/400x300/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/wimbledonlivestream-c22d5eefbf8f40e9b25ba4cab1734ece.jpg
+thumbnail: https://thmb.techidaily.com/e1c4df4174fbb7e774640c12444893c833b651d1c12bd8c02f2b01f747786c25.jpg
 ---
 
 ## [Top List] Best 5 Tools for Creating Talking Avatars
@@ -85,7 +85,7 @@ Next, personalize the qualities of voiceover under the language section. Here, y
 
 Previously, we have discussed the best tool to generate talking AI avatars. However, if you want to try out some alternatives to Wondershare Virbo, we have a solution. For this purpose, we’ve enlisted some other **talking avatar creators** to help you in getting results to your satisfaction:
 
-### 1\. [Akool](https://akool.com/result/talking-photo)
+### 1\. Akool
 
 Akool is a comprehensive generative AI platform available for creators and innovators. Its intuitive features allow users to materialize ideas quickly for diverse marketing and advertising needs. You can upload JPEG and PNG images of less than 30MB for each picture on the tool. Plus, the picture should be clear as it does not detect blurry, overexposure, and side faces.
 
@@ -121,7 +121,7 @@ As discussed before, Akool lets its users customize their talking avatars. Let�
 
 ![change text and voice in akool](https://images.wondershare.com/virbo/article/2024/02/best-tools-for-creating-talking-avatars-10.jpg)
 
-### 2\. [Yepic AI](https://www.yepic.ai/talking-photos)
+### 2\. Yepic AI
 
 If you also want to create **an AI talking avatar**, Yepic AI is your go-to preference. You can create a lifelike digital version of yourself with just a headshot. Users can uniquely present their videos by choosing from over 40 preset avatars. It boasts many actors, languages, and voices, with over 450 options available to personalize your avatar.
 
@@ -154,7 +154,7 @@ Users can utilize the capabilities of this tool to create talking avatars seamle
 
 **Step 3\.** Upon uploading the voiceover, select the voice and the desired language for your written words. Then, select the desired background and add shapes to modify the outlook of your talking avatar. Finally, preview the video and download it to share with others.
 
-### 3\. [Speechify](https://speechify.com/blog/ai-generated-talking-face/)
+### 3\. Speechify
 
 Speechify Studio serves as the premier AI Video and AI Voice Platform. This site empowers anyone to create professional videos in just one minute, with no skills required. You can quickly produce captivating content using AI-generated talking faces. It lets you **create a talking avatar online for free** to save your valuable resources and time.
 
@@ -189,7 +189,7 @@ Import your script from a media file or paste a URL from YouTube. Afterward, cho
 
 ![speechify voice over](https://images.wondershare.com/virbo/article/2024/02/best-tools-for-creating-talking-avatars-15.jpg)
 
-### 4\. [HitPaw Online AI Face Animator](https://online.hitpaw.com/online-face-animator.html)
+### 4\. HitPaw Online AI Face Animator
 
 This online AI face animator is an easy-to-use AI-based tool that brings your still images to life with animated faces. You can choose from various funny templates to animate your photos with a simple upload and a click. It allows you to add humor and personality to your images. The tool supports JPG, PNG, JPEG, and WEBP formats for pictures and animates them with customization.
 
@@ -257,7 +257,7 @@ As discussed before, Akool lets its users customize their talking avatars. Let�
 
 ![change text and voice in akool](https://images.wondershare.com/virbo/article/2024/02/best-tools-for-creating-talking-avatars-10.jpg)
 
-### 2\. [Yepic AI](https://www.yepic.ai/talking-photos)
+### 2\. Yepic AI
 
 If you also want to create **an AI talking avatar**, Yepic AI is your go-to preference. You can create a lifelike digital version of yourself with just a headshot. Users can uniquely present their videos by choosing from over 40 preset avatars. It boasts many actors, languages, and voices, with over 450 options available to personalize your avatar.
 
@@ -290,7 +290,7 @@ Users can utilize the capabilities of this tool to create talking avatars seamle
 
 **Step 3\.** Upon uploading the voiceover, select the voice and the desired language for your written words. Then, select the desired background and add shapes to modify the outlook of your talking avatar. Finally, preview the video and download it to share with others.
 
-### 3\. [Speechify](https://speechify.com/blog/ai-generated-talking-face/)
+### 3\. Speechify
 
 Speechify Studio serves as the premier AI Video and AI Voice Platform. This site empowers anyone to create professional videos in just one minute, with no skills required. You can quickly produce captivating content using AI-generated talking faces. It lets you **create a talking avatar online for free** to save your valuable resources and time.
 
@@ -325,7 +325,7 @@ Import your script from a media file or paste a URL from YouTube. Afterward, cho
 
 ![speechify voice over](https://images.wondershare.com/virbo/article/2024/02/best-tools-for-creating-talking-avatars-15.jpg)
 
-### 4\. [HitPaw Online AI Face Animator](https://online.hitpaw.com/online-face-animator.html)
+### 4\. HitPaw Online AI Face Animator
 
 This online AI face animator is an easy-to-use AI-based tool that brings your still images to life with animated faces. You can choose from various funny templates to animate your photos with a simple upload and a click. It allows you to add humor and personality to your images. The tool supports JPG, PNG, JPEG, and WEBP formats for pictures and animates them with customization.
 
@@ -865,7 +865,7 @@ How to **make my photo talk free online** with Wondershare Virbo:
 
 **Step 1:**Go to the Wondershare Virbo website
 
-Visit the [Wondershare Virbo website](https://tools.techidaily.com/wondershare/virbo/download/)and click "Generate AI Video Online" > “Talking Photo.”
+Visit the [Wondershare Virbo website](https://tools.techidaily.com/wondershare/virbo/download/) and click "Generate AI Video Online" > “Talking Photo.”
 
 ![How to create talking photo online](https://images.wondershare.com/virbo/article/2024/02/photo-speak-online-11.jpg)
 
@@ -1135,7 +1135,7 @@ How to **make my photo talk free online** with Wondershare Virbo:
 
 **Step 1:**Go to the Wondershare Virbo website
 
-Visit the [Wondershare Virbo website](https://tools.techidaily.com/wondershare/virbo/download/)and click "Generate AI Video Online" > “Talking Photo.”
+Visit the [Wondershare Virbo website](https://tools.techidaily.com/wondershare/virbo/download/) and click "Generate AI Video Online" > “Talking Photo.”
 
 ![How to create talking photo online](https://images.wondershare.com/virbo/article/2024/02/photo-speak-online-11.jpg)
 
@@ -1387,7 +1387,7 @@ Moreover, this guide will focus on the diversity in this field using different a
 
 You can generate a **talking face** for posting on social media to capture people’s attention. Many tools are available in the market to help you in **talking face generation.** Below aresome of the best tools to generate such creative content.
 
-### 1\. [Wondershare Virbo](https://virbo.wondershare.com/)
+### 1\. Wondershare Virbo
 
 When seeking the most efficient tool for creating talking face content for marketing and other purposes, Wondershare Virbo is your go-to option. You can also amaze your viewers and exceptionally deliver your messages. Besides the online version, this tool also provides an offline video generator. All in all, this AI-powered tool makes your videos unforgettable for the audience.
 
@@ -1401,7 +1401,7 @@ When seeking the most efficient tool for creating talking face content for marke
 2. You can reach global audiences with a wide variety of accents and languages.
 3. Virbo lets you record your audio directly to make your photo say the same words.
 
-### 1\. [Vidnoz](https://www.vidnoz.com/talking-head.html)
+### 1\. Vidnoz
 
 Vidnoz can help you to turn still images into lifelike characters. With the help of talking photos, you can deliver information in human voice and animation. It will make your speeches engaging and effective for the audience. You can provide a script to the tool to generate a lip-syncing video.
 
@@ -1413,7 +1413,7 @@ Vidnoz can help you to turn still images into lifelike characters. With the help
 2. It provides a voice library to give voiceover to any uploaded picture.
 3. You can create a custom AI avatar using the “AI Generate” feature.
 
-### 2\. [Dupdub](https://www.dupdub.com/talking-photo)
+### 2\. Dupdub
 
 Dupdub is one of the most comprehensive tools to generate a **speak face**. Users can give personal voiceovers to AI avatars with this tool. It allows you to add the script to create personalized videos. In addition, you can also use AI to generate a perfect script for your talking photo.
 
@@ -1425,7 +1425,7 @@ Dupdub is one of the most comprehensive tools to generate a **speak face**. User
 2. This tool allows you to adjust the pitch and speed of the voice of your **talking face.**
 3. Dupdub provides a great lip-sync effect according to your input text.
 
-### 3\. [Feedeo](https://feedeo.spreading.ai/)
+### 3\. Feedeo
 
 If you want a tool to help you create interactive **3D face video**s, Feedeo should be your go-to tool. With its component features, you can add buttons and emojis to your talking photos. Plus, you can also utilize the logic feature to determine the direction of your talkative video.
 
@@ -1437,7 +1437,7 @@ If you want a tool to help you create interactive **3D face video**s, Feedeo sho
 2. You can add personalized scripts to deliver your message through these videos.
 3. It offers an AI avatar voice for generating the required talking face.
 
-### 4\. [DeepBrain](https://www.deepbrain.io/post/create-talking-heads-videos-with-ai-studios-easy-and-quick)
+### 4\. DeepBrain
 
 DeepBrain allows you to generate **a 3D talking face with personalized pose dynamic**s. This tool has 100+ stock of avatars that have human-like expressions and accents. With the help of this tool, you can generate hyper-realistic speech. Moreover, it helps you create lip-syncing videos with this tool for different purposes.
 
@@ -1449,7 +1449,7 @@ DeepBrain allows you to generate **a 3D talking face with personalized pose dyna
 2. This tool has a library of 100+ studio-quality voices.
 3. You just have to prompt AI to generate a talking head video.
 
-### 5\. [Yepic](https://www.yepic.ai/talking-photos)
+### 5\. Yepic
 
 Yepic is a tool that can let you create talking photos in 65+ languages. It offers AI-powered features to customize your talking photo. It has a lip sync technology that adjusts a person's speaking manner to match the brand's tone.
 
@@ -1539,7 +1539,7 @@ Moreover, this guide will focus on the diversity in this field using different a
 
 You can generate a **talking face** for posting on social media to capture people’s attention. Many tools are available in the market to help you in **talking face generation.** Below aresome of the best tools to generate such creative content.
 
-### 1\. [Wondershare Virbo](https://virbo.wondershare.com/)
+### 1\. Wondershare Virbo
 
 When seeking the most efficient tool for creating talking face content for marketing and other purposes, Wondershare Virbo is your go-to option. You can also amaze your viewers and exceptionally deliver your messages. Besides the online version, this tool also provides an offline video generator. All in all, this AI-powered tool makes your videos unforgettable for the audience.
 
@@ -1553,7 +1553,7 @@ When seeking the most efficient tool for creating talking face content for marke
 2. You can reach global audiences with a wide variety of accents and languages.
 3. Virbo lets you record your audio directly to make your photo say the same words.
 
-### 1\. [Vidnoz](https://www.vidnoz.com/talking-head.html)
+### 1\. Vidnoz
 
 Vidnoz can help you to turn still images into lifelike characters. With the help of talking photos, you can deliver information in human voice and animation. It will make your speeches engaging and effective for the audience. You can provide a script to the tool to generate a lip-syncing video.
 
@@ -1565,7 +1565,7 @@ Vidnoz can help you to turn still images into lifelike characters. With the help
 2. It provides a voice library to give voiceover to any uploaded picture.
 3. You can create a custom AI avatar using the “AI Generate” feature.
 
-### 2\. [Dupdub](https://www.dupdub.com/talking-photo)
+### 2\. Dupdub
 
 Dupdub is one of the most comprehensive tools to generate a **speak face**. Users can give personal voiceovers to AI avatars with this tool. It allows you to add the script to create personalized videos. In addition, you can also use AI to generate a perfect script for your talking photo.
 
@@ -1577,7 +1577,7 @@ Dupdub is one of the most comprehensive tools to generate a **speak face**. User
 2. This tool allows you to adjust the pitch and speed of the voice of your **talking face.**
 3. Dupdub provides a great lip-sync effect according to your input text.
 
-### 3\. [Feedeo](https://feedeo.spreading.ai/)
+### 3\. Feedeo
 
 If you want a tool to help you create interactive **3D face video**s, Feedeo should be your go-to tool. With its component features, you can add buttons and emojis to your talking photos. Plus, you can also utilize the logic feature to determine the direction of your talkative video.
 
@@ -1589,7 +1589,7 @@ If you want a tool to help you create interactive **3D face video**s, Feedeo sho
 2. You can add personalized scripts to deliver your message through these videos.
 3. It offers an AI avatar voice for generating the required talking face.
 
-### 4\. [DeepBrain](https://www.deepbrain.io/post/create-talking-heads-videos-with-ai-studios-easy-and-quick)
+### 4\. DeepBrain
 
 DeepBrain allows you to generate **a 3D talking face with personalized pose dynamic**s. This tool has 100+ stock of avatars that have human-like expressions and accents. With the help of this tool, you can generate hyper-realistic speech. Moreover, it helps you create lip-syncing videos with this tool for different purposes.
 
@@ -1601,7 +1601,7 @@ DeepBrain allows you to generate **a 3D talking face with personalized pose dyna
 2. This tool has a library of 100+ studio-quality voices.
 3. You just have to prompt AI to generate a talking head video.
 
-### 5\. [Yepic](https://www.yepic.ai/talking-photos)
+### 5\. Yepic
 
 Yepic is a tool that can let you create talking photos in 65+ languages. It offers AI-powered features to customize your talking photo. It has a lip sync technology that adjusts a person's speaking manner to match the brand's tone.
 
@@ -1965,3 +1965,51 @@ The step-by-step guide provided in this article offers two approaches on **how t
 
 
 
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://ai-topics.techidaily.com/in-2024-best-6-celebrity-text-to-speech-ai-voice-generators-you-may-like/"><u>In 2024, Best 6 Celebrity Text to Speech AI Voice Generators You May Like</u></a></li>
+<li><a href="https://ai-topics.techidaily.com/updated-in-depth-review-of-ivona-text-to-speech-by-nextup-technologies/"><u>Updated In-Depth Review of Ivona Text to Speech by NextUp Technologies</u></a></li>
+<li><a href="https://ai-topics.techidaily.com/the-top-english-voice-generator-to-convert-text-into-desired-accent-for-2024/"><u>The Top English Voice Generator To Convert Text Into Desired Accent for 2024</u></a></li>
+<li><a href="https://ai-topics.techidaily.com/new-what-is-an-ai-avatar-for-2024/"><u>New What Is an AI Avatar for 2024</u></a></li>
+<li><a href="https://ai-topics.techidaily.com/2024-approved-what-is-ai-api/"><u>2024 Approved What Is AI API?</u></a></li>
+<li><a href="https://ai-topics.techidaily.com/new-what-is-an-ai-tool-for-2024/"><u>New What Is an AI Tool for 2024</u></a></li>
+<li><a href="https://ai-topics.techidaily.com/updated-exploring-the-finest-text-to-speech-male-voice-tools-for-natural-output-for-2024/"><u>Updated Exploring the Finest Text-to-Speech Male Voice Tools for Natural Output for 2024</u></a></li>
+<li><a href="https://ai-topics.techidaily.com/updated-2024-approved-what-is-an-ai-voice-generator/"><u>Updated 2024 Approved What Is an AI Voice Generator?</u></a></li>
+<li><a href="https://ai-topics.techidaily.com/new-in-2024-the-best-tools-to-convert-text-to-mp3-with-the-best-natural-voices/"><u>New In 2024, The Best Tools to Convert Text to MP3 With the Best Natural Voices</u></a></li>
+<li><a href="https://ai-topics.techidaily.com/new-2024-approved-how-to-create-funny-talking-avatars-using-oddcast-text-to-speech-tech/"><u>New 2024 Approved How to Create Funny Talking Avatars Using Oddcast Text to Speech Tech</u></a></li>
+<li><a href="https://ai-topics.techidaily.com/updated-2024-approved-how-to-create-funny-talking-avatars-using-oddcast-text-to-speech/"><u>Updated 2024 Approved How to Create Funny Talking Avatars Using Oddcast Text to Speech</u></a></li>
+<li><a href="https://ai-topics.techidaily.com/in-2024-how-to-make-animation-talk-explained-with-easy-steps/"><u>In 2024, How To Make Animation Talk? Explained with Easy Steps</u></a></li>
+<li><a href="https://ai-topics.techidaily.com/breakthrough-how-to-make-a-picture-speak-for-2024/"><u>Breakthrough How to Make A Picture Speak for 2024</u></a></li>
+<li><a href="https://ai-topics.techidaily.com/updated-the-most-efficient-tools-to-convert-text-to-mp3-with-the-best-natural-voices-for-2024/"><u>Updated The Most Efficient Tools to Convert Text to MP3 With the Best Natural Voices for 2024</u></a></li>
+<li><a href="https://ai-topics.techidaily.com/in-2024-what-is-ai-pixel-art-generator/"><u>In 2024, What Is AI Pixel Art Generator?</u></a></li>
+<li><a href="https://ai-topics.techidaily.com/new-what-is-an-ai-presentation-maker-in-2024/"><u>New What Is an AI Presentation Maker, In 2024</u></a></li>
+<li><a href="https://ai-topics.techidaily.com/in-2024-exploring-the-magic-of-ai-selfie-generators/"><u>In 2024, Exploring the Magic of AI Selfie Generators</u></a></li>
+<li><a href="https://ai-topics.techidaily.com/new-what-is-ai-voice-text-to-speech-in-2024/"><u>New What Is AI Voice Text to Speech, In 2024</u></a></li>
+<li><a href="https://ai-topics.techidaily.com/new-in-2024-the-most-efficient-tools-to-convert-text-to-mp3-with-the-best-natural-voices/"><u>New In 2024, The Most Efficient Tools to Convert Text to MP3 With the Best Natural Voices</u></a></li>
+<li><a href="https://ai-topics.techidaily.com/narakeet-review-text-to-speech-convenient-voice-maker-for-2024/"><u>Narakeet Review Text to Speech Convenient Voice Maker for 2024</u></a></li>
+<li><a href="https://ai-topics.techidaily.com/best-6-celebrity-text-to-speech-ai-voice-generators-you-may-like-for-2024/"><u>Best 6 Celebrity Text to Speech AI Voice Generators You May Like for 2024</u></a></li>
+<li><a href="https://ai-topics.techidaily.com/2024-approved-the-best-english-voice-generator-to-convert-text-into-desired-accent/"><u>2024 Approved The Best English Voice Generator To Convert Text Into Desired Accent</u></a></li>
+<li><a href="https://ai-topics.techidaily.com/new-what-is-talking-avatar/"><u>New What Is Talking Avatar?</u></a></li>
+<li><a href="https://ai-topics.techidaily.com/new-top-10-ai-talking-avatars-revolutionizing-communication/"><u>New Top 10 AI-Talking Avatars Revolutionizing Communication</u></a></li>
+<li><a href="https://sound-tweaking.techidaily.com/new-in-2024-unleashing-creativity-on-a-budget-the-leading-free-digital-audio-workstations-for-newbies/"><u>New In 2024, Unleashing Creativity on a Budget The Leading Free Digital Audio Workstations (For Newbies)</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/new-smilesketcher-generate-memes-with-a-click/"><u>[New] SmileSketcher  Generate Memes with a Click</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/updated-exclusive-online-cam-dance-duels/"><u>[Updated] Exclusive Online Cam Dance Duels</u></a></li>
+<li><a href="https://some-skills.techidaily.com/new-trailblazers-in-virtual-reality-content-crafting/"><u>[New] Trailblazers in Virtual Reality Content Crafting</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/new-reviving-camera-victory-over-obs-glitches-for-2024/"><u>[New] Reviving Camera  Victory Over OBS Glitches for 2024</u></a></li>
+<li><a href="https://sound-tweaking.techidaily.com/updated-2024-approved-silencing-the-crowd-effective-strategies-for-minimizing-ambient-sounds-in-recordings/"><u>Updated 2024 Approved Silencing the Crowd Effective Strategies for Minimizing Ambient Sounds in Recordings</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/2024-approved-21plus-puzzling-pictures-assemble-a-joyous-vision/"><u>2024 Approved  21+ Puzzling Pictures  Assemble a Joyous Vision</u></a></li>
+<li><a href="https://tiktok-video-recordings.techidaily.com/2024-approved-unlocking-potential-top-10-tiktok-data-tools/"><u>2024 Approved  Unlocking Potential  Top 10 TikTok Data Tools</u></a></li>
+<li><a href="https://tiktok-videos.techidaily.com/yummy-yields-the-10-most-popular-food-trends-on-social-media/"><u>Yummy Yields  The 10 Most Popular Food Trends on Social Media</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-2024-approved-best-youtube-video-to-text-converters-on-line/"><u>[New] 2024 Approved  Best YouTube Video to Text Converters On-Line</u></a></li>
+<li><a href="https://youtube-help.techidaily.com/in-2024-understanding-youtubes-social-media-protocols/"><u>In 2024, Understanding YouTube's Social Media Protocols</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/updated-in-2024-beginners-essential-guide-to-youtube-video-editing-magic/"><u>[Updated] In 2024, Beginner’s Essential Guide to YouTube Video Editing Magic</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/process-of-screen-sharing-google-pixel-fold-to-pc-detailed-steps-drfone-by-drfone-android/"><u>Process of Screen Sharing Google Pixel Fold to PC- Detailed Steps | Dr.fone</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/in-2024-go-pro-karma-drone-review/"><u>In 2024, Go Pro Karma Drone Review</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/2024-approved-vegas-pro-2021-unpacked-game-changer-or-just-another-tool/"><u>2024 Approved  Vegas Pro 2021 Unpacked  Game Changer or Just Another Tool?</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/instagrams-blueprint-for-building-a-profitable-presence-for-2024/"><u>Instagram's Blueprint for Building a Profitable Presence for 2024</u></a></li>
+<li><a href="https://ai-editing-video.techidaily.com/updated-do-you-need-to-create-a-video-for-your-business-online-but-feel-you-do-not-have-the-skill-and-time-to-do-that-try-out-these-ai-video-generators-that/"><u>Updated Do You Need to Create a Video for Your Business Online but Feel You Do Not Have the Skill and Time to Do That? Try Out These AI Video Generators that Will Work for You to Carry Out Tasks Effectively</u></a></li>
+<li><a href="https://eaxpv-info.techidaily.com/new-in-2024-how-to-bypass-a-youtube-strike-and-keep-creating-videos/"><u>[New] In 2024, How to Bypass a YouTube Strike and Keep Creating Videos</u></a></li>
+<li><a href="https://ai-video-apps.techidaily.com/updated-in-2024-video-editing-on-mac-os-x-mavericks-a-beginners-guide/"><u>Updated In 2024, Video Editing on Mac OS X Mavericks A Beginners Guide</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/updated-2024-approved-unveiling-top-win11-videography-software-selections/"><u>[Updated] 2024 Approved  Unveiling Top Win11 Videography Software Selections</u></a></li>
+</ul></div>
