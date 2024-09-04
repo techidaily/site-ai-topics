@@ -1,7 +1,7 @@
 ---
 title: "New Release: Minisforum Unveils Compact Power with AMD Ryzen 9 7945HX & Nvidia RTX Ampere GPU"
-date: 2024-08-14T11:45:04.824Z
-updated: 2024-08-15T11:45:04.824Z
+date: 2024-09-03T23:35:46.648Z
+updated: 2024-09-04T23:35:46.648Z
 tags:
   - desktop
 categories:
@@ -100,5 +100,8 @@ If you're looking to purchase a computer for a family member, or don't know much
 </ul></div>
 
 <!-- affiliate ads begin -->
-<a href="https://martinic.evyy.net/c/5597632/1422856/4482" target="_top" id="1422856"><img src="//a.impactradius-go.com/display-ad/4482-1422856" border="0" alt="" width="580" height="309"/></a>
+<a href="https://appsumo.8odi.net/c/5597632/2024347/7443" target="_top" id="2024347">
+  <img src="//a.impactradius-go.com/display-ad/7443-2024347" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2024347/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->

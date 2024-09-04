@@ -1,7 +1,7 @@
 ---
 title: Russia Leaps Forward with Pioneering 128-Core CPU Design to Elevate Supercomputer Performance
-date: 2024-08-14T11:45:29.603Z
-updated: 2024-08-15T11:45:29.603Z
+date: 2024-09-03T23:35:46.254Z
+updated: 2024-09-04T23:35:46.254Z
 tags:
   - desktop
 categories:
@@ -177,5 +177,8 @@ _**Storage:**_   _2TB M.2 NVMe SSD_
 </ul></div>
 
 <!-- affiliate ads begin -->
-<a href="https://zonlipartnershipprogram.pxf.io/c/5597632/1596691/17882" target="_top" id="1596691"><img src="//a.impactradius-go.com/display-ad/17882-1596691" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1596691/17882" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://aligracehair.sjv.io/c/5597632/1886073/19272" target="_top" id="1886073">
+  <img src="//a.impactradius-go.com/display-ad/19272-1886073" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1886073/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
