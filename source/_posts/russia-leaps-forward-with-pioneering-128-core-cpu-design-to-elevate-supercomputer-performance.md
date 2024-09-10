@@ -1,7 +1,7 @@
 ---
 title: Russia Leaps Forward with Pioneering 128-Core CPU Design to Elevate Supercomputer Performance
-date: 2024-09-03T23:35:46.254Z
-updated: 2024-09-04T23:35:46.254Z
+date: 2024-09-09T00:29:51.087Z
+updated: 2024-09-10T00:29:51.087Z
 tags:
   - desktop
 categories:
@@ -9,6 +9,12 @@ categories:
 thumbnail: https://cdn.mos.cms.futurecdn.net/AdGF8mqfmrfKzZXh2t7FTB-320-80.png
 ---
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2132160/7443" target="_top" id="2132160">
+  <img src="//a.impactradius-go.com/display-ad/7443-2132160" border="0" alt="https://techidaily.com" width="600" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2132160/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Conquer Father's Day with an Elite iBUYPOWER Gaming Computer Present
 
 Celebrate Father's Day this Sunday, 16th of June, with a new iBUYPOWER RDY prebuilt gaming PC. Whether it's a gift for yourself or the father figure in your life, a shiny new gaming PC is just the ticket for a nice relaxing gaming session. Plus, if you combine one of iBUYPOWER's PC deals with one of our[iBUYPOWER coupons](https://www.tomshardware.com/coupons/ibuypower.com) , you could save even more on a new gaming rig.
@@ -175,10 +181,3 @@ _**Storage:**_   _2TB M.2 NVMe SSD_
 <li><a href="https://ai-topics.techidaily.com/what-is-an-ai-video-generator-in-2024/"><u>What Is an AI Video Generator, In 2024</u></a></li>
 <li><a href="https://printer-issues.techidaily.com/winnt-reactivate-sluggish-uncooperative-printer/"><u>WinNT: Reactivate Sluggish, Uncooperative Printer</u></a></li>
 </ul></div>
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1886073/19272" target="_top" id="1886073">
-  <img src="//a.impactradius-go.com/display-ad/19272-1886073" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1886073/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
