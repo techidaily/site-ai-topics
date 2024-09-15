@@ -1,7 +1,7 @@
 ---
 title: Russia Leaps Forward with Pioneering 128-Core CPU Design to Elevate Supercomputer Performance
-date: 2024-09-09T00:29:51.087Z
-updated: 2024-09-10T00:29:51.087Z
+date: 2024-09-08T18:51:13.105Z
+updated: 2024-09-15T00:01:19.382Z
 tags:
   - desktop
 categories:
@@ -9,12 +9,6 @@ categories:
 thumbnail: https://cdn.mos.cms.futurecdn.net/AdGF8mqfmrfKzZXh2t7FTB-320-80.png
 ---
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2132160/7443" target="_top" id="2132160">
-  <img src="//a.impactradius-go.com/display-ad/7443-2132160" border="0" alt="https://techidaily.com" width="600" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2132160/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Conquer Father's Day with an Elite iBUYPOWER Gaming Computer Present
 
 Celebrate Father's Day this Sunday, 16th of June, with a new iBUYPOWER RDY prebuilt gaming PC. Whether it's a gift for yourself or the father figure in your life, a shiny new gaming PC is just the ticket for a nice relaxing gaming session. Plus, if you combine one of iBUYPOWER's PC deals with one of our[iBUYPOWER coupons](https://www.tomshardware.com/coupons/ibuypower.com) , you could save even more on a new gaming rig.
@@ -108,14 +102,11 @@ _**Storage:**_   _2TB M.2 NVMe SSD_
 
  All of the above PCs are pre-built, in stock, and come with free two-day shipping. iBUYPOWER also offers a standard three-year warranty on PCs consisting of three years of labor and one-year parts. See the iBUYPOWER website for more information on their warranty specifics.
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -126,58 +117,29 @@ _**Storage:**_   _2TB M.2 NVMe SSD_
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-record-videos.techidaily.com/new-2024-approved-creators-uniting-for-marvels-digital-future/"><u>[New] 2024 Approved  Creators Uniting for Marvel's Digital Future</u></a></li>
-<li><a href="https://screen-recording.techidaily.com/new-broadcast-battles-obs-clashes-with-shadowgl-for-2024/"><u>[New] Broadcast Battles  OBS Clashes with ShadowGL for 2024</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/n-2024-break-free-from-the-norms-crafting-your-own-streamer-identity/"><u>[New] In 2024, Break Free From The Norms  Crafting Your Own Streamer Identity</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/new-keep-them-coming-back-top-6-ways-to-enhance-your-audiences-staying-power-on-youtube/"><u>[New] Keep Them Coming Back  Top 6 Ways To Enhance Your Audience's Staying Power on YouTube</u></a></li>
-<li><a href="https://visual-screen-recording.techidaily.com/1716070161847-updated-2024-approved-capture-every-detail-on-mac-free/"><u>[Updated] 2024 Approved  Capture Every Detail on Mac - Free!</u></a></li>
-<li><a href="https://some-techniques.techidaily.com/updated-from-novice-to-notorious-top-20-vlogging-ideas/"><u>[Updated] From Novice to Notorious  Top 20 Vlogging Ideas</u></a></li>
-<li><a href="https://digital-screen-recording.techidaily.com/updated-in-2024-integrating-visual-cues-a-guide-to-videography-annotations/"><u>[Updated] In 2024, Integrating Visual Cues  A Guide to Videography Annotations</u></a></li>
-<li><a href="https://fox-friendly.techidaily.com/updated-in-2024-virtual-realm-laughs-and-learns-20plus-creative-meme-making-methods/"><u>[Updated] In 2024, Virtual Realm Laughs & Learns  20+ Creative Meme-Making Methods</u></a></li>
-<li><a href="https://facebook-video-footage.techidaily.com/updated-unlocking-the-million-sub-code-insights-for-digital-growth/"><u>[Updated] Unlocking the Million-Sub Code  Insights for Digital Growth</u></a></li>
-<li><a href="https://facebook-video-files.techidaily.com/2024-approved-cut-to-the-chase-download-fb-videos-as-mp4/"><u>2024 Approved  Cut to the Chase - Download FB Videos as MP4</u></a></li>
-<li><a href="https://youtube-stream.techidaily.com/2024-approved-harmonizing-your-tunes-step-by-step-playlist-crafting-for-web-and-mobile-users/"><u>2024 Approved  Harmonizing Your Tunes  Step-by-Step Playlist Crafting for Web & Mobile Users</u></a></li>
-<li><a href="https://video-capture.techidaily.com/2024-approved-prime-pc-webcams-10-best-windows-recording-tools/"><u>2024 Approved  Prime PC Webcams  10 Best Windows Recording Tools</u></a></li>
-<li><a href="https://ai-topics.techidaily.com/2024-approved-demystifying-ai-game-generators/"><u>2024 Approved Demystifying AI Game Generators</u></a></li>
-<li><a href="https://phone-solutions.techidaily.com/3-easy-solutions-to-hard-reset-honor-magic-5-pro-drfone-by-drfone-reset-android-reset-android/"><u>3 Easy Solutions to Hard Reset Honor Magic 5 Pro | Dr.fone</u></a></li>
-<li><a href="https://ai-topics.techidaily.com/5-best-realistic-text-to-speech-ai-voice-generators-you-may-like-for-2024/"><u>5 Best Realistic Text to Speech AI Voice Generators You May Like for 2024</u></a></li>
-<li><a href="https://ai-topics.techidaily.com/best-6-celebrity-text-to-speech-ai-voice-generators-you-may-like-for-2024/"><u>Best 6 Celebrity Text to Speech AI Voice Generators You May Like for 2024</u></a></li>
-<li><a href="https://ai-topics.techidaily.com/chatgpts-legal-landscape-adapting-to-googles-reimagined-news-service-and-maximizing-mobile-internet-use-while-traveling/"><u>ChatGPT's Legal Landscape: Adapting to Google's Reimagined News Service & Maximizing Mobile Internet Use While Traveling</u></a></li>
-<li><a href="https://ai-topics.techidaily.com/dfu-mode-to-the-rescue-overcoming-these-5-iphone-glitches-easily/"><u>DFU Mode to the Rescue: Overcoming These 5 iPhone Glitches Easily</u></a></li>
-<li><a href="https://ai-topics.techidaily.com/efficient-data-cleansing-on-mac-with-the-standard-version-of-stellardyzer-plan-and-purge-with-precision/"><u>Efficient Data Cleansing on Mac with the Standard Version of Stellardyzer: Plan & Purge with Precision</u></a></li>
-<li><a href="https://ai-topics.techidaily.com/graphical-interface-hardware-restricted-on-pc/"><u>Graphical Interface Hardware Restricted on PC</u></a></li>
-<li><a href="https://bypass-frp.techidaily.com/in-2024-easy-guide-how-to-bypass-honor-magic5-ultimate-frp-android-10111213-by-drfone-android/"><u>In 2024, Easy Guide How To Bypass Honor Magic5 Ultimate FRP Android 10/11/12/13</u></a></li>
-<li><a href="https://ai-topics.techidaily.com/in-2024-exploring-key-components-and-creation-process-of-ai-face-generators/"><u>In 2024, Exploring Key Components and Creation Process of AI Face Generators</u></a></li>
-<li><a href="https://extra-guidance.techidaily.com/in-2024-mastering-iphone-video-merging-techniques/"><u>In 2024, Mastering iPhone Video Merging Techniques</u></a></li>
-<li><a href="https://ai-topics.techidaily.com/in-2024-top-5-tools-to-convert-text-to-audio-online-for-free/"><u>In 2024, Top 5 Tools to Convert Text to Audio Online for Free</u></a></li>
-<li><a href="https://ai-topics.techidaily.com/in-2024-what-is-an-ai-artist/"><u>In 2024, What Is an AI Artist?</u></a></li>
-<li><a href="https://ai-topics.techidaily.com/new-2024-approved-demystifying-ai-game-generators/"><u>New 2024 Approved Demystifying AI Game Generators</u></a></li>
-<li><a href="https://ai-topics.techidaily.com/new-in-2024-design-cartoon-images-with-the-best-tools/"><u>New In 2024, Design Cartoon Images With the Best Tools</u></a></li>
-<li><a href="https://ai-topics.techidaily.com/new-in-2024-how-to-generate-speech-from-text-the-top-text-to-speech-converters/"><u>New In 2024, How To Generate Speech From Text | The Top Text-to-Speech Converters</u></a></li>
-<li><a href="https://ai-topics.techidaily.com/new-in-2024-what-is-an-ai-tool/"><u>New In 2024, What Is an AI Tool?</u></a></li>
-<li><a href="https://ai-topics.techidaily.com/new-narakeet-review-convenient-text-to-speech-voice-maker/"><u>New Narakeet Review Convenient Text to Speech Voice Maker</u></a></li>
-<li><a href="https://ai-topics.techidaily.com/new-what-are-ai-tools-for-2024/"><u>New What Are AI Tools for 2024</u></a></li>
-<li><a href="https://ai-topics.techidaily.com/new-what-is-an-ai-script-generator/"><u>New What Is an AI Script Generator?</u></a></li>
-<li><a href="https://win-answers.techidaily.com/overcoming-overwatch-performance-problems-a-2024-how-to-guide/"><u>Overcoming Overwatch Performance Problems: A 2024 How-To Guide</u></a></li>
-<li><a href="https://ai-topics.techidaily.com/power-of-ai-thumbnail-generators-for-2024/"><u>Power of AI Thumbnail Generators for 2024</u></a></li>
-<li><a href="https://tech-haven.techidaily.com/reasons-to-shun-ai-tools-for-windows-11-key-production/"><u>Reasons to Shun AI Tools for Windows 11 Key Production</u></a></li>
-<li><a href="https://ai-topics.techidaily.com/reviewing-the-innovative-mirari-ok-to-wake-alarm-clock-designed-for-children-is-it-the-best-choice/"><u>Reviewing the Innovative Mirari 'OK To Wake!' Alarm Clock Designed For Children – Is It The Best Choice?</u></a></li>
-<li><a href="https://ai-topics.techidaily.com/revolutionize-your-drive-with-the-sumind-bt7b-an-in-depth-fm-transmitter-analysis/"><u>Revolutionize Your Drive with the Sumind BT7#B - An In-Depth FM Transmitter Analysis</u></a></li>
-<li><a href="https://windows11.techidaily.com/securing-your-system-without-relying-on-bitlocker/"><u>Securing Your System without Relying on Bitlocker</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/1716463575911-top-tier-video-transcription-aid-automated/"><u>Top-Tier Video Transcription Aid, Automated!</u></a></li>
-<li><a href="https://ai-topics.techidaily.com/updated-2024-approved-essential-tools-for-creating-dynamic-talking-avatars/"><u>Updated 2024 Approved Essential Tools for Creating Dynamic Talking Avatars</u></a></li>
-<li><a href="https://ai-topics.techidaily.com/updated-2024-approved-make-your-pictures-speak-online-with-the-best-tools-recommended/"><u>Updated 2024 Approved Make Your Pictures Speak Online With the Best Tools Recommended</u></a></li>
-<li><a href="https://ai-topics.techidaily.com/updated-2024-approved-the-best-english-voice-generator-to-convert-text-into-desired-accent/"><u>Updated 2024 Approved The Best English Voice Generator To Convert Text Into Desired Accent</u></a></li>
-<li><a href="https://ai-topics.techidaily.com/updated-a-detailed-guide-to-making-your-pictures-speak-for-2024/"><u>Updated A Detailed Guide to Making Your Pictures Speak for 2024</u></a></li>
-<li><a href="https://ai-topics.techidaily.com/updated-how-to-generate-speech-from-text-the-best-text-to-speech-converters-for-2024/"><u>Updated How To Generate Speech From Text | The Best Text-to-Speech Converters for 2024</u></a></li>
-<li><a href="https://ai-topics.techidaily.com/updated-in-2024-how-to-generate-speech-from-text-the-top-text-to-speech-converters/"><u>Updated In 2024, How To Generate Speech From Text | The Top Text-to-Speech Converters</u></a></li>
-<li><a href="https://ai-topics.techidaily.com/updated-in-2024-how-to-make-animation-talk-explained-with-easy-steps/"><u>Updated In 2024, How To Make Animation Talk? Explained with Easy Steps</u></a></li>
-<li><a href="https://ai-topics.techidaily.com/updated-ready-to-dive-into-photo-talking-videos-heres-what-you-need-to-know-for-2024/"><u>Updated Ready To Dive Into Photo Talking Videos? Heres What You Need To Know for 2024</u></a></li>
-<li><a href="https://ai-topics.techidaily.com/updated-top-list-best-5-tools-for-creating-talking-avatars-for-2024/"><u>Updated Top List Best 5 Tools for Creating Talking Avatars for 2024</u></a></li>
-<li><a href="https://ai-topics.techidaily.com/updated-what-is-an-ai-art-generator/"><u>Updated What Is an AI Art Generator?</u></a></li>
-<li><a href="https://ai-topics.techidaily.com/waht-is-ai-pixel-art-generator-in-2024/"><u>Waht Is AI Pixel Art Generator, In 2024</u></a></li>
-<li><a href="https://ai-topics.techidaily.com/what-does-hugging-face-do-uses-and-importance-unveiled/"><u>What Does Hugging Face Do? Uses and Importance Unveiled</u></a></li>
-<li><a href="https://ai-topics.techidaily.com/what-is-ai-marketing/"><u>What Is AI Marketing?</u></a></li>
-<li><a href="https://ai-topics.techidaily.com/what-is-an-ai-video-generator-in-2024/"><u>What Is an AI Video Generator, In 2024</u></a></li>
-<li><a href="https://printer-issues.techidaily.com/winnt-reactivate-sluggish-uncooperative-printer/"><u>WinNT: Reactivate Sluggish, Uncooperative Printer</u></a></li>
+<li><a href="https://screen-sharing-recording.techidaily.com/new-in-2024-ultimate-mc-village-dwellings-guide/"><u>[New] In 2024, Ultimate MC Village Dwellings Guide</u></a></li>
+<li><a href="https://fox-direct.techidaily.com/updated-how-to-save-top-cloud-providers-rates-for-2024/"><u>[Updated] How to Save Top Cloud Providers' Rates for 2024</u></a></li>
+<li><a href="https://ai-topics.techidaily.com/2024-approved-the-top-10-ai-avatar-generators/"><u>2024 Approved The Top 10 AI Avatar Generators</u></a></li>
+<li><a href="https://win11-tips.techidaily.com/end-toranse-of-wsl-in-windows-environment/"><u>End-Toranse of WSL in Windows Environment</u></a></li>
+<li><a href="https://android-location.techidaily.com/in-2024-easy-ways-to-manage-your-oppo-reno-11-5g-location-settings-drfone-by-drfone-virtual/"><u>In 2024, Easy Ways to Manage Your Oppo Reno 11 5G Location Settings | Dr.fone</u></a></li>
+<li><a href="https://extra-support.techidaily.com/in-2024-maximizing-win11-performance-boosters-revealed/"><u>In 2024, Maximizing Win11 Performance Boosters Revealed</u></a></li>
+<li><a href="https://ai-topics.techidaily.com/in-2024-waht-is-ai-pixel-art-generator/"><u>In 2024, Waht Is AI Pixel Art Generator?</u></a></li>
+<li><a href="https://ai-topics.techidaily.com/new-in-2024-ai-portrait-generator-getting-closer-to-the-artistic-marvels/"><u>New In 2024, AI Portrait Generator Getting Closer to the Artistic Marvels</u></a></li>
+<li><a href="https://ai-topics.techidaily.com/new-ready-to-dive-into-photo-talking-videos-heres-what-you-need-to-know/"><u>New Ready To Dive Into Photo Talking Videos? Heres What You Need To Know</u></a></li>
+<li><a href="https://fix-guide.techidaily.com/samsung-galaxy-a25-5g-not-connecting-to-wi-fi-12-quick-ways-to-fix-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Samsung Galaxy A25 5G Not Connecting to Wi-Fi? 12 Quick Ways to Fix | Dr.fone</u></a></li>
+<li><a href="https://ai-topics.techidaily.com/updated-in-2024-in-depth-review-of-ivona-text-to-speech-converter/"><u>Updated In 2024, In-Depth Review of Ivona Text to Speech Converter</u></a></li>
 </ul></div>
+
+<!-- affiliate ads begin -->
+<span id="1702748">
+					<video width="192" height="320" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1702748.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/18544-1702748">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1702748.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:120px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Ftwopages.pxf.io%2Fc%2F5597632%2F1702748%2F18544'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1702748/18544" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+

@@ -1,7 +1,7 @@
 ---
 title: "Revamping the Classic: Ayaneo's Mini-PC with AMD Zen 3 Powers Up, Inspired by Macintosh Design"
-date: 2024-09-09T00:29:51.754Z
-updated: 2024-09-10T00:29:51.754Z
+date: 2024-09-08T02:59:12.162Z
+updated: 2024-09-14T18:52:26.291Z
 tags:
   - desktop
 categories:
@@ -9,12 +9,6 @@ categories:
 thumbnail: https://thmb.techidaily.com/4be59755ae7994bb626513b3614a3ec947be3b56430323187fb64d462d24a601.jpg
 ---
 
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137208/26400" target="_top" id="2137208">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137208" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137208/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Ayaneo's AM01 – Your Gateway to the Iconic Classic Macintosh Charm in a Cutting-Edge AMD Mini PC
 
 Ayaneo is officially selling its retro mini PC, the AM01, outside of its crowdfunding campaign via its[website](https://ayaneo.com/goods/8451695378677?) . The AM01 mini PC is reminiscent of the Macintosh Classic and is available in multiple configurations. The AM01 is much smaller than the Macintosh Classic, but it's packed with features and can be purchased with a memory configuration of between 8 and 32GB and primary SSD storage options of up to 1TB.
@@ -52,12 +46,6 @@ __Ayaneo Retro Mini PC AM01 Specification__
 
 ![Ayaneo AM01 Mini PC](https://cdn.mos.cms.futurecdn.net/WGEpGR8Pts2g8USJ2KBFfh-320-80.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2115918/19272" target="_top" id="2115918">
-  <img src="//a.impactradius-go.com/display-ad/19272-2115918" border="0" alt="https://techidaily.com" width="336" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115918/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
  (Image credit: Ayaneo)
 
  The pricing is fairly attractive, with the highest-spec options retailing at $449 including shipping, though customs charges may vary depending on country. Also, you may not receive full warranty support, depending on country. There are, of course, other mini PCs to consider — the main selling point of the AM01 is its Macintosh-themed design. If you're just looking for a mini PC,[Asus' NUCs](https://www.tomshardware.com/desktops/mini-pcs/asus-reveals-pricing-for-its-new-nucs-nuc-14-pro-starts-at-dollar394-and-nuc-14-pro-at-dollar869) are a local option.
@@ -66,18 +54,6 @@ __Ayaneo Retro Mini PC AM01 Specification__
 
  That said, if Ayaneo's successful[Indiegogo campaign](https://www.indiegogo.com/projects/ayaneo-retro-mini-pc-creator-of-mini-pc-2-0-era#/) proved anything, it's that users are willing to pay for a fun retro design despite potential trade-offs —[nostalgia is always a great way](https://www.tomshardware.com/peripherals/mechanical-keyboards/grab-this-cool-retro-console-inspired-keyboard-for-just-dollar83) to get people to buy something.
 
-<!-- affiliate ads begin -->
-<span id="1834903">
-					<video width="864" height="1536" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1834903.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/16836-1834903">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1834903.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2F25home.pxf.io%2Fc%2F5597632%2F1834903%2F16836'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1834903/16836" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Stay On the Cutting Edge: Get the Tom's Hardware Newsletter
 
  Get Tom's Hardware's best news and in-depth reviews, straight to your inbox.
@@ -86,14 +62,11 @@ __Ayaneo Retro Mini PC AM01 Specification__
 
  By submitting your information you agree to the[Terms & Conditions](https://futureplc.com/terms-conditions/) and[Privacy Policy](https://futureplc.com/privacy-policy/) and are aged 16 or over.
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -104,58 +77,30 @@ __Ayaneo Retro Mini PC AM01 Specification__
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://vp-tips.techidaily.com/new-2024-approved-ultra-clarity-the-new-era-of-hd-monitors-envy-27/"><u>[New] 2024 Approved  Ultra Clarity  The New Era of HD Monitors - Envy 27</u></a></li>
-<li><a href="https://desktop-recording.techidaily.com/new-free-skype-mp3-logger-101-guide-for-2024/"><u>[New] Free Skype Mp3 Logger 101 Guide for 2024</u></a></li>
-<li><a href="https://some-techniques.techidaily.com/new-game-on-essential-samsung-gear-vr-experiences/"><u>[New] Game On  Essential Samsung Gear VR Experiences</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/updated-2024-approved-pro-android-pixel-perfect-techniques/"><u>[Updated] 2024 Approved  Pro Android Pixel Perfect Techniques</u></a></li>
-<li><a href="https://on-screen-recording.techidaily.com/updated-a-compreranble-collection-of-game-logging-apps-transcending-fbx-limitations-for-2024/"><u>[Updated] A Compreranble Collection of Game Logging Apps Transcending FBX Limitations for 2024</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/updated-effortless-imovie-music-enhancement-using-youtube-songs-for-2024/"><u>[Updated] Effortless iMovie Music Enhancement Using YouTube Songs for 2024</u></a></li>
-<li><a href="https://facebook-video-files.techidaily.com/updated-in-2024-advanced-tips-for-sending-fb-videos-via-whatsapp/"><u>[Updated] In 2024, Advanced Tips for Sending FB Videos via WhatsApp</u></a></li>
-<li><a href="https://facebook-videos.techidaily.com/updated-mastering-youtube-on-facebook-the-art-of-video-creation-for-2024/"><u>[Updated] Mastering YouTube on Facebook  The Art of Video Creation for 2024</u></a></li>
-<li><a href="https://screen-sharing-recording.techidaily.com/updated-quick-and-easy-skype-calls-to-mp3-files-free-for-2024/"><u>[Updated] Quick & Easy Skype Calls to MP3 Files (Free) for 2024</u></a></li>
-<li><a href="https://fox-hovers.techidaily.com/2024-approved-core-elements-of-virtual-tale-transmission/"><u>2024 Approved  Core Elements of Virtual Tale Transmission</u></a></li>
-<li><a href="https://fox-hovers.techidaily.com/2024-approved-instructions-turn-on-windows-11s-adaptive-hdr/"><u>2024 Approved  Instructions  Turn on Windows 11'S Adaptive HDR</u></a></li>
-<li><a href="https://screen-mirroring-recording.techidaily.com/2024-approved-recording-roulette-top-strategies-for-tv-show-capture/"><u>2024 Approved  Recording Roulette  Top Strategies for TV Show Capture</u></a></li>
-<li><a href="https://ai-topics.techidaily.com/2024-approved-5-top-realistic-text-to-speech-ai-voice-generators-you-may-like/"><u>2024 Approved 5 Top Realistic Text to Speech AI Voice Generators You May Like</u></a></li>
-<li><a href="https://ai-topics.techidaily.com/2024-approved-demystifying-ai-game-generators/"><u>2024 Approved Demystifying AI Game Generators</u></a></li>
-<li><a href="https://ai-topics.techidaily.com/2024-approved-the-best-text-to-audio-converters-of-all-times/"><u>2024 Approved The Best Text-to-Audio Converters of All Times</u></a></li>
-<li><a href="https://ai-topics.techidaily.com/5-best-realistic-text-to-speech-ai-voice-generators-you-may-like-for-2024/"><u>5 Best Realistic Text to Speech AI Voice Generators You May Like for 2024</u></a></li>
-<li><a href="https://android-unlock.techidaily.com/5-solutions-for-vivo-y56-5g-unlock-without-password-by-drfone-android/"><u>5 Solutions For Vivo Y56 5G Unlock Without Password</u></a></li>
-<li><a href="https://activate-lock.techidaily.com/a-comprehensive-guide-to-icloud-unlock-from-apple-iphone-6-plus-online-by-drfone-ios/"><u>A Comprehensive Guide to iCloud Unlock From Apple iPhone 6 Plus Online</u></a></li>
-<li><a href="https://instagram-video-recordings.techidaily.com/a-step-by-step-manual-to-instagram-highlight-image-creation-for-2024/"><u>A Step-by-Step Manual to Instagram Highlight Image Creation for 2024</u></a></li>
-<li><a href="https://facebook-video-files.techidaily.com/broadcasting-breakthroughs-4-innovations-for-livetv-and-fb/"><u>Broadcasting Breakthroughs  4 Innovations for LiveTV and FB</u></a></li>
-<li><a href="https://some-knowledge.techidaily.com/exclusive-hats-review-best-action-cameras-on-two-wheels-for-2024/"><u>Exclusive Hats Review  Best Action Cameras on Two Wheels for 2024</u></a></li>
-<li><a href="https://common-error.techidaily.com/fixing-missing-d3dxt939dll-errors-in-windows-expert-solutions-and-tips/"><u>Fixing Missing d3dxt9_39.dll Errors in Windows - Expert Solutions and Tips</u></a></li>
-<li><a href="https://driver-install.techidaily.com/free-easy-access-to-compatible-canon-printer-drivers/"><u>Free, Easy Access to Compatible Canon Printer Drivers</u></a></li>
-<li><a href="https://android-transfer.techidaily.com/how-to-transfer-data-after-switching-from-vivo-s18-pro-to-latest-samsung-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>How to Transfer Data After Switching From Vivo S18 Pro to Latest Samsung | Dr.fone</u></a></li>
-<li><a href="https://ai-topics.techidaily.com/in-2024-easy-steps-to-make-a-talking-avatar-with-ai-from-any-photos/"><u>In 2024, Easy Steps to Make a Talking Avatar with AI From Any Photos</u></a></li>
-<li><a href="https://ai-topics.techidaily.com/in-2024-exploring-key-components-and-creation-process-of-ai-face-generators/"><u>In 2024, Exploring Key Components and Creation Process of AI Face Generators</u></a></li>
-<li><a href="https://ai-topics.techidaily.com/in-2024-new-essential-details-of-making-perfect-talking-face/"><u>In 2024, New Essential Details of Making Perfect Talking Face</u></a></li>
-<li><a href="https://ai-topics.techidaily.com/in-2024-top-5-tools-to-convert-text-to-audio-online-for-free/"><u>In 2024, Top 5 Tools to Convert Text to Audio Online for Free</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/in-2024-top-picks-8-superior-5k-computer-monitors/"><u>In 2024, Top Picks  8 Superior 5K Computer Monitors</u></a></li>
-<li><a href="https://ai-topics.techidaily.com/new-2024-approved-demystifying-ai-game-generators/"><u>New 2024 Approved Demystifying AI Game Generators</u></a></li>
-<li><a href="https://ai-topics.techidaily.com/new-2024-approved-what-is-talking-avatar/"><u>New 2024 Approved What Is Talking Avatar?</u></a></li>
-<li><a href="https://ai-topics.techidaily.com/new-in-2024-demystifying-ai-game-generators/"><u>New In 2024, Demystifying AI Game Generators</u></a></li>
-<li><a href="https://ai-topics.techidaily.com/new-in-2024-what-is-an-ai-headshot-generator/"><u>New In 2024, What Is an AI Headshot Generator?</u></a></li>
-<li><a href="https://ai-topics.techidaily.com/new-in-depth-review-of-ivona-text-to-speech-by-nextup-technologies-for-2024/"><u>New In-Depth Review of Ivona Text to Speech by NextUp Technologies for 2024</u></a></li>
-<li><a href="https://ai-topics.techidaily.com/new-narakeet-review-convenient-text-to-speech-voice-maker/"><u>New Narakeet Review Convenient Text to Speech Voice Maker</u></a></li>
-<li><a href="https://ai-topics.techidaily.com/new-what-is-an-ai-tool-for-2024/"><u>New What Is an AI Tool for 2024</u></a></li>
-<li><a href="https://ai-topics.techidaily.com/new-what-is-talking-avatar-for-2024/"><u>New What Is Talking Avatar for 2024</u></a></li>
-<li><a href="https://ai-topics.techidaily.com/power-of-ai-thumbnail-generators-for-2024/"><u>Power of AI Thumbnail Generators for 2024</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/proven-asmr-techniques-and-the-best-microphone-options-for-2024/"><u>Proven ASMR Techniques and the Best Microphone Options for 2024</u></a></li>
-<li><a href="https://ai-topics.techidaily.com/top-5-tools-to-convert-text-to-audio-online-for-free/"><u>Top 5 Tools to Convert Text to Audio Online for Free</u></a></li>
-<li><a href="https://ai-topics.techidaily.com/updated-2024-approved-essential-tools-for-creating-dynamic-talking-avatars/"><u>Updated 2024 Approved Essential Tools for Creating Dynamic Talking Avatars</u></a></li>
-<li><a href="https://ai-topics.techidaily.com/updated-2024-approved-how-to-generate-speech-from-text-the-best-text-to-speech-converters/"><u>Updated 2024 Approved How To Generate Speech From Text | The Best Text-to-Speech Converters</u></a></li>
-<li><a href="https://ai-topics.techidaily.com/updated-5-best-realistic-text-to-speech-ai-voice-generators-you-may-like/"><u>Updated 5 Best Realistic Text to Speech AI Voice Generators You May Like</u></a></li>
-<li><a href="https://ai-topics.techidaily.com/updated-a-detailed-and-trustworthy-review-of-murfai-ai-text-to-speech-tool-for-2024/"><u>Updated A Detailed and Trustworthy Review of Murf.ai AI Text-to-Speech Tool for 2024</u></a></li>
-<li><a href="https://ai-topics.techidaily.com/updated-how-to-generate-speech-from-text-the-top-text-to-speech-converters/"><u>Updated How To Generate Speech From Text | The Top Text-to-Speech Converters</u></a></li>
-<li><a href="https://ai-topics.techidaily.com/updated-how-to-make-talking-emoji-on-iphone-in-easy-steps-for-2024/"><u>Updated How To Make Talking Emoji on iPhone in Easy Steps for 2024</u></a></li>
-<li><a href="https://ai-topics.techidaily.com/updated-in-2024-exploring-the-best-text-to-speech-online-tools-to-use/"><u>Updated In 2024, Exploring The Best Text-to-Speech Online Tools To Use</u></a></li>
-<li><a href="https://ai-topics.techidaily.com/updated-in-2024-what-is-ai-voice/"><u>Updated In 2024, What Is AI Voice?</u></a></li>
-<li><a href="https://ai-topics.techidaily.com/updated-in-2024-what-is-an-ai-text-generator/"><u>Updated In 2024, What Is an AI Text Generator?</u></a></li>
-<li><a href="https://ai-topics.techidaily.com/updated-the-ultimate-guide-to-generating-speech-in-different-languages-with-the-best-tools-for-2024/"><u>Updated The Ultimate Guide to Generating Speech in Different Languages With the Best Tools for 2024</u></a></li>
-<li><a href="https://ai-topics.techidaily.com/updated-top-list-best-5-tools-for-creating-talking-avatars-for-2024/"><u>Updated Top List Best 5 Tools for Creating Talking Avatars for 2024</u></a></li>
-<li><a href="https://ai-topics.techidaily.com/updated-what-is-an-ai-presentation-maker-for-2024/"><u>Updated What Is an AI Presentation Maker for 2024</u></a></li>
-<li><a href="https://ai-topics.techidaily.com/what-is-ai-marketing/"><u>What Is AI Marketing?</u></a></li>
-<li><a href="https://ai-topics.techidaily.com/what-is-ai-text-to-video/"><u>What Is AI Text to Video?</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/new-elevate-your-fb-chronicles-with-complimentary-extension-tools/"><u>[New] Elevate Your FB Chronicles with Complimentary Extension Tools</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/new-in-2024-following-the-future-top-25-social-media-pioneers-on-instagram/"><u>[New] In 2024, Following The Future Top 25 Social Media Pioneers on Instagram</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/updated-secrets-to-dynamic-and-effective-igtv-covers/"><u>[Updated] Secrets to Dynamic & Effective IGTV Covers</u></a></li>
+<li><a href="https://ai-topics.techidaily.com/compact-power-in-the-razer-book-13-in-depth-review/"><u>Compact Power in the Razer Book 13 - In-Depth Review</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/effortlessly-launch-file-explorer-on-your-windows-tenth-pc-a-step-by-step-guide-with-12-tips/"><u>Effortlessly Launch File Explorer on Your Windows Tenth PC: A Step-by-Step Guide with 12 Tips</u></a></li>
+<li><a href="https://android-frp.techidaily.com/hassle-free-ways-to-remove-frp-lock-on-motorola-moto-g04withwithout-a-pc-by-drfone-android/"><u>Hassle-Free Ways to Remove FRP Lock on Motorola Moto G04with/without a PC</u></a></li>
+<li><a href="https://iphone-unlock.techidaily.com/how-many-attempts-to-unlock-apple-iphone-13-pro-drfone-by-drfone-ios/"><u>How Many Attempts To Unlock Apple iPhone 13 Pro | Dr.fone</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/in-2024-unlocking-the-potential-of-your-vr-gametime-recordings/"><u>In 2024, Unlocking the Potential of Your VR Gametime Recordings</u></a></li>
+<li><a href="https://ai-topics.techidaily.com/in-depth-review-of-the-nvidia-shield-tv-pro-a-gamechanger-in-streaming-tech/"><u>In-Depth Review of the Nvidia Shield TV Pro - A Gamechanger in Streaming Tech</u></a></li>
+<li><a href="https://ai-topics.techidaily.com/the-future-of-learning-through-play-thorough-examination-of-the-wonder-workshop-dash-toy/"><u>The Future of Learning Through Play: Thorough Examination of the Wonder Workshop Dash Toy</u></a></li>
+<li><a href="https://ai-topics.techidaily.com/try-it-out-elevate-your-setup-with-a-dell-visual-display-top-tier-sound-isolation-headset-and-ultraclear-camera/"><u>Try It Out: Elevate Your Setup with a Dell Visual Display, Top-Tier Sound Isolation Headset, & UltraClear Camera</u></a></li>
+<li><a href="https://ai-topics.techidaily.com/1723262392834-uncover-top-hardware-reviews-and-specs-with-your-site-name-the-experts-choice-for-quality-equipment/"><u>Uncover Top Hardware Reviews and Specs with [Your Site Name] – The Experts' Choice for Quality Equipment</u></a></li>
 </ul></div>
+
+<!-- affiliate ads begin -->
+<span id="1983545">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1983545.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1983545">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983545.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983545%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983545/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+

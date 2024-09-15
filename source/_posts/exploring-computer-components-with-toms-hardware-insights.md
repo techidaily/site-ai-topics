@@ -1,7 +1,7 @@
 ---
 title: Exploring Computer Components with Tom's Hardware Insights
-date: 2024-09-09T00:29:51.278Z
-updated: 2024-09-10T00:29:51.278Z
+date: 2024-09-10T01:43:52.807Z
+updated: 2024-09-15T01:26:42.838Z
 tags:
   - desktop
 categories:
@@ -9,12 +9,6 @@ categories:
 thumbnail: https://cdn.mos.cms.futurecdn.net/qcFHRGFudrAZzioZiCUpoa-320-80.png
 ---
 
-<!-- affiliate ads begin -->
-<a href="https://wigfever.sjv.io/c/5597632/2005196/22899" target="_top" id="2005196">
-  <img src="//a.impactradius-go.com/display-ad/22899-2005196" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://wigfever.sjv.io/i/5597632/2005196/22899" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Navigating Through Tech with Tom - A Trusted Source for Hardware Enthusiasts
 
 Lenovo has launched a new series of gaming desktops powered by laptop CPUs. PCs like this are commonly described as having adopted the[MoDT](https://www.tomshardware.com/news/intel-raptor-lake-mobile-chips-get-soldered-to-micro-atx-motherboards) (Mobile on Desktop) hybrid design.[Mini PCs](https://www.tomshardware.com/desktops/mini-pcs/minisforum-atomman-g7-pt-touted-as-worlds-first-amd-advantage-mini-pc-packs-an-amd-r9-7945hx-and-rx-7600m-xt) and[All-in-Ones](https://www.tomshardware.com/tag/all-in-one-pcs) were the first to make MoDT popular, but they also usually used mobile GPUs (or just integrated graphics). In contrast, Lenovo’s new Legion 7000K PC series, now[available in China](https://shop-links.co/link/?exclusive=1&publisher_slug=itechdaily19598&url=https%3A%2F%2Fitem.lenovo.com.cn%2Fproduct%2F1037096.html) , come in sizable tower cases and are sold with powerful Nvidia[GeForce RTX 40](https://www.tomshardware.com/features/nvidia-ada-lovelace-and-geforce-rtx-40-series-everything-we-know) series GPUs pre-installed.
@@ -23,12 +17,6 @@ Lenovo has launched a new series of gaming desktops powered by laptop CPUs. PCs 
 
 ![Lenovo Legion 7000K gaming PCs](https://cdn.mos.cms.futurecdn.net/KiWmBjf3WBxdHs7uNFYu2U-320-80.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137228/26400" target="_top" id="2137228">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137228" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137228/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
  (Image credit: Lenovo)
 
  Looking more closely at the new Legion 7000K machines, we see that they come with a choice between two pretty strong Intel Raptor Lake Refresh mobile CPUs. The most powerful option is the[Core i9-14900HX](https://www.tomshardware.com/pc-components/cpus/intel-unleashes-14th-gen-raptor-lake-refresh-hx-series-laptops-cpus-refreshed-chips-with-up-to-24-cores-58-ghz-boost-clock-and-192gb-ddr5-support) , with 24C/32C, clock speeds up to 5.8 GHz, and 36MB Smart Cache. This powerful chip can be quite thrifty with its 55W base power, but also has a max turbo power of a laptop-melting 157W. In[Geekbench](https://browser.geekbench.com/processor-benchmarks) nT rankings, for example, the performance of this CPU sits snugly between the Core i9-13900 and the Ryzen 9 PRO 7945 desktop chips – so it isn’t a lightweight.
@@ -41,30 +29,12 @@ Lenovo has launched a new series of gaming desktops powered by laptop CPUs. PCs 
 
 ![Lenovo Legion 7000K gaming PCs](https://cdn.mos.cms.futurecdn.net/KHmtZBvJU6LcChAReYSDBU-320-80.jpg)
 
-<!-- affiliate ads begin -->
-<span id="2127886">
-					<video width="576" height="1024" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/2127886.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/18498-2127886">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/2127886.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Funicoeye.pxf.io%2Fc%2F5597632%2F2127886%2F18498'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/2127886/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
  (Image credit: Lenovo)
 
  Another spec of the Legion 7000K gaming desktop that users will have to decide upon is what GPU to choose. The product page allows the choice of RTX 4060 / Ti, RTX 4070 Ti / Super. As with a traditional desktop PC, users can upgrade at any time later.
 
  Lastly, the new Legion systems come with a standard 32GB DDR5-5600 dual-channel RAM and 1TB[PCIe Gen4 storage](https://www.tomshardware.com/reviews/best-ssds,3891.html) . Again, upgrades shouldn’t be a problem in the future with SODIMMs presumably used for RAM, and two M.2 slots and two SATA ports available for storage.
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135364/19272" target="_top" id="2135364">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135364" border="0" alt="https://techidaily.com" width="120" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135364/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Stay On the Cutting Edge: Get the Tom's Hardware Newsletter
 
  Get Tom's Hardware's best news and in-depth reviews, straight to your inbox.
@@ -83,8 +53,6 @@ Lenovo has launched a new series of gaming desktops powered by laptop CPUs. PCs 
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -94,52 +62,23 @@ Lenovo has launched a new series of gaming desktops powered by laptop CPUs. PCs 
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://snapchat-videos.techidaily.com/new-2024-approved-transitioning-saved-snaps-from-social-networks-to-personal-archive/"><u>[New] 2024 Approved  Transitioning Saved Snaps From Social Networks to Personal Archive</u></a></li>
-<li><a href="https://facebook-video-recording.techidaily.com/new-in-2024-camouflaged-consumer-of-facebook-feeds/"><u>[New] In 2024, Camouflaged Consumer of Facebook Feeds</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/n-2024-download-custom-mcb-banner-packs/"><u>[New] In 2024, Download Custom MCB Banner Packs</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/new-in-2024-from-zero-to-hero-making-your-instagram-videos-go-wild/"><u>[New] In 2024, From Zero to Hero  Making Your Instagram Videos Go Wild</u></a></li>
-<li><a href="https://screen-capture.techidaily.com/new-non-disclosure-in-videos-tips-for-masking-identifiable-details/"><u>[New] Non-Disclosure in Videos  Tips for Masking Identifiable Details</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/updated-in-2024-channel-exploration-guide-the-best-historical-youtube-selections-for-students/"><u>[Updated] In 2024, Channel Exploration Guide  The Best Historical YouTube Selections for Students</u></a></li>
-<li><a href="https://extra-approaches.techidaily.com/2024-approved-motorcycle-video-magic-best-cam-hats-of-2023-selection/"><u>2024 Approved  Motorcycle Video Magic  Best Cam Hats of 2023 Selection</u></a></li>
-<li><a href="https://extra-skills.techidaily.com/2024-approved-navigate-picture-in-picture-settings-in-youtube-app-ios/"><u>2024 Approved  Navigate Picture-in-Picture Settings in YouTube App iOS</u></a></li>
-<li><a href="https://ai-topics.techidaily.com/2024-approved-ai-portrait-generator-getting-closer-to-the-artistic-marvels/"><u>2024 Approved AI Portrait Generator Getting Closer to the Artistic Marvels</u></a></li>
-<li><a href="https://ai-vdieo-software.techidaily.com/2024-approved-vn-video-editor-for-pc-a-brief-review/"><u>2024 Approved VN Video Editor For PC - A Brief Review</u></a></li>
-<li><a href="https://blog-min.techidaily.com/4-ways-to-transfer-music-from-vivo-y100-5g-to-iphone-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>4 Ways to Transfer Music from Vivo Y100 5G to iPhone | Dr.fone</u></a></li>
-<li><a href="https://ai-topics.techidaily.com/best-text-to-audio-converters-of-all-times-for-2024/"><u>Best Text-to-Audio Converters of All Times for 2024</u></a></li>
-<li><a href="https://win11-tips.techidaily.com/breathe-life-into-your-windows-services-manager-with-these-top-7-tricks/"><u>Breathe Life Into Your Windows Services Manager with These Top 7 Tricks</u></a></li>
-<li><a href="https://win-able.techidaily.com/civilization-vi-wont-start-on-windows-10-fixes-and-solutions/"><u>Civilization VI Wont Start on Windows 10 – Fixes & Solutions</u></a></li>
-<li><a href="https://ai-topics.techidaily.com/easy-steps-to-create-talking-memoji-on-iphone-free-for-2024/"><u>Easy Steps To Create Talking Memoji on iPhone Free for 2024</u></a></li>
-<li><a href="https://ai-topics.techidaily.com/essential-tools-for-creating-dynamic-talking-avatars/"><u>Essential Tools for Creating Dynamic Talking Avatars</u></a></li>
-<li><a href="https://ai-topics.techidaily.com/how-to-enable-the-text-to-speech-function-on-iphone/"><u>How to Enable the Text to Speech Function on iPhone</u></a></li>
-<li><a href="https://ai-topics.techidaily.com/how-to-make-talking-emoji-on-iphone-in-easy-steps/"><u>How To Make Talking Emoji on iPhone in Easy Steps</u></a></li>
-<li><a href="https://ai-topics.techidaily.com/in-2024-how-to-create-funny-talking-avatars-using-oddcast-text-to-speech-tech/"><u>In 2024, How to Create Funny Talking Avatars Using Oddcast Text to Speech Tech</u></a></li>
-<li><a href="https://ai-topics.techidaily.com/in-2024-the-power-of-ai-thumbnail-generators/"><u>In 2024, The Power of AI Thumbnail Generators</u></a></li>
-<li><a href="https://ai-topics.techidaily.com/in-2024-the-ultimate-guide-to-generating-speech-in-different-languages-with-the-best-tools/"><u>In 2024, The Ultimate Guide to Generating Speech in Different Languages With the Best Tools</u></a></li>
-<li><a href="https://ai-topics.techidaily.com/new-2024-approved-easy-steps-to-create-talking-memoji-on-iphone-free/"><u>New 2024 Approved Easy Steps To Create Talking Memoji on iPhone Free</u></a></li>
-<li><a href="https://ai-topics.techidaily.com/new-2024-approved-easy-tutorial-how-to-make-a-talking-cartoon-video-step-by-step/"><u>New 2024 Approved Easy Tutorial How To Make a Talking Cartoon Video Step-by-Step</u></a></li>
-<li><a href="https://ai-topics.techidaily.com/new-in-2024-in-depth-review-of-ivona-text-to-speech-converter/"><u>New In 2024, In-Depth Review of Ivona Text to Speech Converter</u></a></li>
-<li><a href="https://ai-topics.techidaily.com/new-in-2024-make-your-pictures-speak-online-with-the-best-tools-recommended/"><u>New In 2024, Make Your Pictures Speak Online With the Best Tools Recommended</u></a></li>
-<li><a href="https://ai-topics.techidaily.com/new-the-top-10-ai-avatar-generators/"><u>New The Top 10 AI Avatar Generators</u></a></li>
-<li><a href="https://ai-topics.techidaily.com/new-waht-is-ai-pixel-art-generator/"><u>New Waht Is AI Pixel Art Generator?</u></a></li>
-<li><a href="https://ai-topics.techidaily.com/new-what-is-ai-marketing-in-2024/"><u>New What Is AI Marketing, In 2024</u></a></li>
-<li><a href="https://ai-topics.techidaily.com/new-what-is-an-ai-text-generator/"><u>New What Is an AI Text Generator?</u></a></li>
-<li><a href="https://ai-topics.techidaily.com/the-most-efficient-tools-to-convert-text-to-mp3-with-the-best-natural-voices-for-2024/"><u>The Most Efficient Tools to Convert Text to MP3 With the Best Natural Voices for 2024</u></a></li>
-<li><a href="https://ai-topics.techidaily.com/the-most-recommended-natural-ai-hindi-voice-generator/"><u>The Most Recommended Natural AI Hindi Voice Generator</u></a></li>
-<li><a href="https://techidaily.com/things-you-dont-know-about-infinix-hot-40-reset-code-drfone-by-drfone-reset-android-reset-android/"><u>Things You Dont Know About Infinix Hot 40 Reset Code | Dr.fone</u></a></li>
-<li><a href="https://ai-topics.techidaily.com/updated-2024-approved-exploring-the-finest-text-to-speech-male-voice-tools-for-natural-output/"><u>Updated 2024 Approved Exploring the Finest Text-to-Speech Male Voice Tools for Natural Output</u></a></li>
-<li><a href="https://ai-topics.techidaily.com/updated-2024-approved-new-essential-details-of-making-perfect-talking-face/"><u>Updated 2024 Approved New Essential Details of Making Perfect Talking Face</u></a></li>
-<li><a href="https://ai-topics.techidaily.com/updated-2024-approved-what-is-an-ai-tool/"><u>Updated 2024 Approved What Is an AI Tool?</u></a></li>
-<li><a href="https://ai-topics.techidaily.com/updated-5-best-realistic-text-to-speech-ai-voice-generators-you-may-like-for-2024/"><u>Updated 5 Best Realistic Text to Speech AI Voice Generators You May Like for 2024</u></a></li>
-<li><a href="https://ai-topics.techidaily.com/updated-exploring-the-finest-text-to-speech-male-voice-tools-for-natural-output-for-2024/"><u>Updated Exploring the Finest Text-to-Speech Male Voice Tools for Natural Output for 2024</u></a></li>
-<li><a href="https://ai-topics.techidaily.com/updated-in-2024-5-best-realistic-text-to-speech-ai-voice-generators-you-may-like/"><u>Updated In 2024, 5 Best Realistic Text to Speech AI Voice Generators You May Like</u></a></li>
-<li><a href="https://ai-topics.techidaily.com/updated-in-2024-how-to-create-funny-talking-avatars-using-oddcast-text-to-speech/"><u>Updated In 2024, How to Create Funny Talking Avatars Using Oddcast Text to Speech</u></a></li>
-<li><a href="https://ai-topics.techidaily.com/updated-in-2024-ready-to-dive-into-photo-talking-videos-heres-what-you-need-to-know/"><u>Updated In 2024, Ready To Dive Into Photo Talking Videos? Heres What You Need To Know</u></a></li>
-<li><a href="https://ai-topics.techidaily.com/updated-power-of-ai-thumbnail-generators-for-2024/"><u>Updated Power of AI Thumbnail Generators for 2024</u></a></li>
-<li><a href="https://ai-topics.techidaily.com/updated-what-is-ai-pixel-art-generator-for-2024/"><u>Updated What Is AI Pixel Art Generator for 2024</u></a></li>
-<li><a href="https://ai-topics.techidaily.com/updated-what-is-an-ai-avatar/"><u>Updated What Is an AI Avatar?</u></a></li>
-<li><a href="https://ai-topics.techidaily.com/users-guide-how-to-create-photo-talking-videos-with-the-best-tools-in-2024/"><u>Users Guide How To Create Photo Talking Videos With the Best Tools, In 2024</u></a></li>
-<li><a href="https://ai-topics.techidaily.com/what-is-ai-generated-text-in-2024/"><u>What Is AI Generated Text, In 2024</u></a></li>
-<li><a href="https://ai-topics.techidaily.com/what-is-ai-influencer-in-2024/"><u>What Is AI Influencer, In 2024</u></a></li>
-<li><a href="https://ai-topics.techidaily.com/what-is-an-ai-editor/"><u>What Is an AI Editor?</u></a></li>
-<li><a href="https://ai-topics.techidaily.com/what-is-an-ai-script-generator-for-2024/"><u>What Is an AI Script Generator for 2024</u></a></li>
+<li><a href="https://vimeo-videos.techidaily.com/new-2024-approved-cutting-edge-content-creation-mastering-how-to-trim-videos-in-real-time-on-vimeo/"><u>[New] 2024 Approved Cutting-Edge Content Creation Mastering How to Trim Videos in Real Time on Vimeo</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/024-approved-innovative-ways-to-craft-free-and-stylish-youtube-video-titles/"><u>[New] 2024 Approved Innovative Ways to Craft Free and Stylish YouTube Video Titles</u></a></li>
+<li><a href="https://some-tips.techidaily.com/new-top-video-editors-aiding-in-app-dev-creation/"><u>[New] Top Video Editors Aiding in App Dev Creation</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/2024-approved-innovative-approach-to-enhance-mp4s-with-srt/"><u>2024 Approved Innovative Approach to Enhance MP4s with SRT</u></a></li>
+<li><a href="https://blog-min.techidaily.com/best-3-software-to-transfer-files-tofrom-your-honor-magic5-ultimate-via-a-usb-cable-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>Best 3 Software to Transfer Files to/from Your Honor Magic5 Ultimate via a USB Cable | Dr.fone</u></a></li>
+<li><a href="https://win11-tips.techidaily.com/essential-steps-to-address-error-0x800700e1-issues-on-windows-11-pcs/"><u>Essential Steps to Address Error 0X800700E1 Issues on Windows 11 PCs</u></a></li>
+<li><a href="https://ai-topics.techidaily.com/exploring-ai-face-generators/"><u>Exploring AI Face Generators</u></a></li>
+<li><a href="https://ai-topics.techidaily.com/how-to-generate-speech-from-text-the-top-text-to-speech-converters-for-2024/"><u>How To Generate Speech From Text | The Top Text-to-Speech Converters for 2024</u></a></li>
+<li><a href="https://ai-topics.techidaily.com/in-2024-what-is-ai-background-generator/"><u>In 2024, What Is AI Background Generator?</u></a></li>
+<li><a href="https://ai-topics.techidaily.com/new-how-to-make-your-memoji-talk-get-creative-with-your-messaging/"><u>New How To Make Your Memoji Talk? Get Creative With Your Messaging</u></a></li>
+<li><a href="https://tech-renaissance.techidaily.com/1722891655749-the-hidden-world-of-smileys-discover-10-fascinating-emoji-truths/"><u>The Hidden World of Smileys: Discover 10 Fascinating Emoji Truths!</u></a></li>
 </ul></div>
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2123732/7443" target="_top" id="2123732">
+  <img src="//a.impactradius-go.com/display-ad/7443-2123732" border="0" alt="https://techidaily.com" width="600" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123732/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
