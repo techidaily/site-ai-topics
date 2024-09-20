@@ -1,7 +1,7 @@
 ---
 title: "Strategic Expansion: China's Plan to Enhance State Supercomputing Power by 30%%, Achieve 300 Exaflops in Half a Decade"
-date: 2024-09-11T19:09:03.054Z
-updated: 2024-09-14T19:10:18.040Z
+date: 2024-09-18T17:41:41.205Z
+updated: 2024-09-19T18:04:30.141Z
 tags:
   - desktop
 categories:
@@ -52,23 +52,26 @@ thumbnail: https://thmb.techidaily.com/a42282b650e186f3549f7d2aa960eb18debb612fb
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://instagram-video-files.techidaily.com/new-the-complete-guide-to-inverted-footage-in-instagram-for-2024/"><u>[New] The Complete Guide to Inverted Footage in Instagram for 2024</u></a></li>
-<li><a href="https://some-techniques.techidaily.com/updated-illuminated-imagery-standing-out-in-the-visual-field/"><u>[Updated] Illuminated Imagery Standing Out in the Visual Field</u></a></li>
-<li><a href="https://ai-topics.techidaily.com/2024-approved-what-are-ai-tools/"><u>2024 Approved What Are AI Tools?</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/2024-approved-wildlife-documentary-contenders-hero5-black-vs-sj7/"><u>2024 Approved Wildlife Documentary Contenders Hero5 Black Vs SJ7</u></a></li>
-<li><a href="https://sim-unlock.techidaily.com/in-2024-sim-unlock-vivo-y200-phones-without-code-2-ways-to-remove-android-sim-lock-by-drfone-android/"><u>In 2024, Sim Unlock Vivo Y200 Phones without Code 2 Ways to Remove Android Sim Lock</u></a></li>
-<li><a href="https://ai-video-translation.techidaily.com/new-in-2024-best-toolbox-to-translate-youtube-videos-to-english-subtitles/"><u>New In 2024, Best Toolbox to Translate YouTube Videos to English Subtitles</u></a></li>
-<li><a href="https://ai-topics.techidaily.com/new-in-2024-what-are-ai-tools/"><u>New In 2024, What Are AI Tools?</u></a></li>
-<li><a href="https://hardware-help.techidaily.com/new-version-released-compatible-firmware-for-your-lenovo-thinkpad-thunderbolt-3-hub/"><u>New Version Released: Compatible Firmware for Your Lenovo ThinkPad Thunderbolt 3 Hub</u></a></li>
-<li><a href="https://hardware-help.techidaily.com/quick-install-essential-drivers-for-your-asus-z370-e-motherboard/"><u>Quick Install: Essential Drivers for Your ASUS Z370-E Motherboard</u></a></li>
-<li><a href="https://android-unlock.techidaily.com/top-15-apps-to-hack-wifi-password-on-samsung-galaxy-s24-by-drfone-android/"><u>Top 15 Apps To Hack WiFi Password On Samsung Galaxy S24</u></a></li>
-<li><a href="https://ai-topics.techidaily.com/updated-in-2024-best-text-to-audio-converters-of-all-times/"><u>Updated In 2024, Best Text-to-Audio Converters of All Times</u></a></li>
+<li><a href="https://screen-activity-recording.techidaily.com/new-flickerframe-fanfare-feedback/"><u>[New] FlickerFrame Fanfare Feedback</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/new-origami-and-samurai-inspirations-for-minecraft-homes-for-2024/"><u>[New] Origami & Samurai Inspirations for Minecraft Homes for 2024</u></a></li>
+<li><a href="https://extra-support.techidaily.com/new-secure-stock-images-avoiding-watermarks/"><u>[New] Secure Stock Images Avoiding Watermarks</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/updated-2024-approved-instagram-searching-skills-unlock-additional-free-filters/"><u>[Updated] 2024 Approved Instagram Searching Skills – Unlock Additional Free Filters</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/updated-decoding-the-secrets-of-successful-haul-video-edits-for-2024/"><u>[Updated] Decoding the Secrets of Successful Haul Video Edits for 2024</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/11-must-know-tricks-for-effective-fb-video-seo-and-performance-for-2024/"><u>11 Must-Know Tricks for Effective FB Video SEO and Performance for 2024</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/2024-approved-when-order-falls-premium-lineup-of-best-zombie-games/"><u>2024 Approved When Order Falls Premium Lineup of Best Zombie Games</u></a></li>
+<li><a href="https://ai-topics.techidaily.com/how-to-make-animation-talk-explained-with-easy-steps/"><u>How To Make Animation Talk? Explained with Easy Steps</u></a></li>
+<li><a href="https://ai-topics.techidaily.com/new-2024-approved-what-is-an-ai-video-generator/"><u>New 2024 Approved What Is an AI Video Generator?</u></a></li>
+<li><a href="https://ai-topics.techidaily.com/new-a-detailed-guide-to-making-your-pictures-speak-for-2024/"><u>New A Detailed Guide to Making Your Pictures Speak for 2024</u></a></li>
+<li><a href="https://common-error.techidaily.com/1723208835262-solving-steelseries-arctis-amor-problems-fixing-the-microphone-not-working/"><u>Solving SteelSeries Arctis amoR Problems - Fixing the Microphone Not Working</u></a></li>
+<li><a href="https://ai-topics.techidaily.com/the-most-recommended-natural-ai-hindi-voice-generator-for-2024/"><u>The Most Recommended Natural AI Hindi Voice Generator for 2024</u></a></li>
+<li><a href="https://ai-topics.techidaily.com/updated-easy-steps-to-make-a-talking-avatar-with-ai-from-any-photos-for-2024/"><u>Updated Easy Steps to Make a Talking Avatar with AI From Any Photos for 2024</u></a></li>
+<li><a href="https://ai-topics.techidaily.com/updated-what-is-an-ai-headshot-generator/"><u>Updated What Is an AI Headshot Generator?</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135396/19272" target="_top" id="2135396">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135396" border="0" alt="https://techidaily.com" width="160" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2075462/7443" target="_top" id="2075462">
+  <img src="//a.impactradius-go.com/display-ad/7443-2075462" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135396/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2075462/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 

@@ -1,7 +1,7 @@
 ---
 title: Updated 2024 Approved Easy Steps to Make a Talking Avatar with AI From Any Photos
-date: 2024-09-09T19:25:19.827Z
-updated: 2024-09-14T16:43:02.351Z
+date: 2024-09-12T17:53:20.605Z
+updated: 2024-09-19T23:08:28.493Z
 tags: 
   - ai photos
   - talking photos
@@ -66,13 +66,6 @@ No idea where to start writing your script? Many talking avatar platforms can le
 ### 4\. Auto-translation
 
 Auto-translation features are essential for engaging global audiences. Talking Avatar enables avatars to automatically translate your content into various languages. This ensures that viewers from diverse linguistic backgrounds can understand and engage with your content effectively and facilitates communication on a global scale.
-
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137228/26400" target="_top" id="2137228">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137228" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137228/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Part 3\. How To Create Your Own Talking Avatar With the Easiest Way
 
@@ -496,13 +489,6 @@ To **make pictures talk online** or on your PC, here are the following steps:
 
 ![export button pc](https://images.wondershare.com/virbo/article/2024/02/how-to-make-a-picture-speak-online-12.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://wigfever.sjv.io/c/5597632/2014851/22899" target="_top" id="2014851">
-  <img src="//a.impactradius-go.com/display-ad/22899-2014851" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://wigfever.sjv.io/i/5597632/2014851/22899" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 1. When ready, enter the text you wish your photo to speak within the Text Script section. After inputting your script, adjust your voiceover settings from the section located at the bottom right of the page.
 
 ![export button pc](https://images.wondershare.com/virbo/article/2024/02/how-to-make-a-picture-speak-online-13.jpg)
@@ -510,19 +496,6 @@ To **make pictures talk online** or on your PC, here are the following steps:
 1. Here, you can modify the speed, pitch, and volume of the audio. Select the language and gender of your voice and then click OK.
 
 ![export button pc](https://images.wondershare.com/virbo/article/2024/02/how-to-make-a-picture-speak-online-14.jpg)
-
-<!-- affiliate ads begin -->
-<span id="1983472">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1983472.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1983472">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983472.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983472%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983472/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 1. Experiment with various voices and scripts to discover the perfect match for your photo. When finished editing, click the Create Video button.
 
@@ -605,6 +578,13 @@ After that, scroll to the “Language” portion and click on it. A new pop-up w
 Now, set the speed of delivery voice as per your requirement. You can also customize the volume and pitch of it. Finally, click the "Export" button in the upper right corner. After selecting the resolution for the output file, you will be redirected to the “My Creations” section with saved files.
 
 ![change volume and voice settings](https://images.wondershare.com/virbo/article/2024/02/create-photo-talking-videos-online-6.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2115932/19272" target="_top" id="2115932">
+  <img src="//a.impactradius-go.com/display-ad/19272-2115932" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115932/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Part 3\. How To Create Photo Talking Videos With Some Top Online Tools
 
@@ -796,13 +776,6 @@ Once you've crafted your Memoji, you can use it across various Apple platforms a
 
 ![How to make your Memoji talk on iPhone](https://images.wondershare.com/virbo/article/2024/02/how-to-make-memoji-talk-1.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://review-au.sjv.io/c/5597632/2098704/14409" target="_top" id="2098704">
-  <img src="//a.impactradius-go.com/display-ad/14409-2098704" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://review-au.sjv.io/i/5597632/2098704/14409" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## Part 2\. How To Easily Make Your Own Memoji on iPhone
 
 Before we get into **how to make your Memoji talk**, let’s prepare and make your own Memoji on iPhone first. To create your own Memoji that truly captures your essence, you'll want to customize it to closely resemble yourself or any characters you had in mind.
@@ -923,6 +896,13 @@ Here’s how to make and customize your own Memoji on iPhone:
 
 Take your time to fine-tune each detail until you're satisfied with the result. Once you've completed customizing your Memoji, you're ready to show its charm across your Apple devices.
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135363/19272" target="_top" id="2135363">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135363" border="0" alt="https://techidaily.com" width="120" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135363/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Part 3\. How To Record and Send Your Memoji on iPhone
 
 Now that you’ve created my personalized Memoji, you may want to ask “**how do I make my Memoji talk**”. You can do so by recording with your Memoji and sharing it with your friends. Recording with Memoji can be a fun and creative way to express yourself in your communication.
@@ -940,6 +920,13 @@ Follow these straightforward steps on how to record and send your Memoji on iPho
 **Step 5:** After selecting your Memoji, tap the Record button to start recording your message. You have up to 30 seconds to express yourself. Tap Stop when finished, then send it to your friend. They will receive your Memoji message as an animated video, complete with your voice recording.
 
 ![How to record and send talking Memoji](https://images.wondershare.com/virbo/article/2024/02/how-to-make-memoji-talk-3.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1868495/19272" target="_top" id="1868495">
+  <img src="//a.impactradius-go.com/display-ad/19272-1868495" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1868495/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 But if you want to share your **talking Memoji** outside of the Messages app, you can save the recording to your camera roll and then share it through other messaging apps or social media platforms.
 
@@ -978,13 +965,6 @@ Tap on "Upload a photo" and select the Memoji picture saved on your camera roll.
 Input your desired text and select a voiceover from the options provided below to generate the audio for your video. Alternatively, you can also record your own voice by selecting "record audio". After completing the video editing process, click on "Generate Video" to export your creation.
 
 ![Customize voice for the talking Memoji](https://images.wondershare.com/virbo/article/2024/02/how-to-make-memoji-talk-6.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2137413/7443" target="_top" id="2137413">
-  <img src="//a.impactradius-go.com/display-ad/7443-2137413" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2137413/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 If you need help with [how to make your Memoji talk](https://www.youtube.com/watch?v=GDqbSvhec9M), you can refer to the video tutorial.
 
@@ -1668,6 +1648,13 @@ First, open Wondershare Virbo to enter its interface. Once you open the platform
 
 ![start talking photo feature](https://images.wondershare.com/virbo/article/2024/02/creating-cartoon-conversation-images-with-top-tools-2.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2111995/7443" target="_top" id="2111995">
+  <img src="//a.impactradius-go.com/display-ad/7443-2111995" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2111995/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 [Get Started Online](https://tools.techidaily.com/wondershare/virbo/download/) [Free Download](https://tools.techidaily.com/wondershare/virbo/download/)
 
 #### Step 2\. Import the Image for Creating Video
@@ -1736,6 +1723,13 @@ With the simple interface of this tool, you can bring your character to life in 
 2. Users can explore different brushes and colors to make 2D **speaking cartoon images**.
 3. This tool allows you to introduce multiple frames and sound effects for appealing animations.
 
+<!-- affiliate ads begin -->
+<a href="https://bluettius.sjv.io/c/5597632/2139117/17108" target="_top" id="2139117">
+  <img src="//a.impactradius-go.com/display-ad/17108-2139117" border="0" alt="https://techidaily.com" width="320" height="90"/>
+</a>
+<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139117/17108" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### Steps To Create Animations With Brush Ninja
 
 Want to add animations to your casual or working tasks? Follow these steps individually to create impressive animations using the Brush Ninja tool:
@@ -1784,16 +1778,19 @@ However, if you want to cartoonize your content with a professional touch, Wonde
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://discord-videos.techidaily.com/updated-in-2024-mastering-discord-pics-download-and-edit-tutorial/"><u>[Updated] In 2024, Mastering Discord Pics Download & Edit Tutorial</u></a></li>
-<li><a href="https://facebook-videos.techidaily.com/updated-the-blueprint-to-buzz-generating-posts-for-2024/"><u>[Updated] The Blueprint to Buzz-Generating Posts for 2024</u></a></li>
-<li><a href="https://ai-topics.techidaily.com/2024-approved-how-to-generate-speech-from-text-the-top-text-to-speech-converters/"><u>2024 Approved How To Generate Speech From Text | The Top Text-to-Speech Converters</u></a></li>
-<li><a href="https://ai-topics.techidaily.com/2024-approved-the-recommended-natural-ai-hindi-voice-generator/"><u>2024 Approved The Recommended Natural AI Hindi Voice Generator</u></a></li>
-<li><a href="https://facebook-video-recording.techidaily.com/a-compreehers-path-to-aspect-ratio-mastery-in-facebook-videos-for-2024/"><u>A Compreeher's Path to Aspect Ratio Mastery in Facebook Videos for 2024</u></a></li>
-<li><a href="https://tech-savvy.techidaily.com/are-browser-addons-for-ai-tools-safe/"><u>Are Browser AddOns for AI Tools Safe?</u></a></li>
-<li><a href="https://extra-information.techidaily.com/behind-the-scenes-expert-techniques-for-video-magic-for-2024/"><u>Behind the Scenes Expert Techniques for Video Magic for 2024</u></a></li>
-<li><a href="https://ai-topics.techidaily.com/essential-tools-for-creating-dynamic-talking-avatars-for-2024/"><u>Essential Tools for Creating Dynamic Talking Avatars for 2024</u></a></li>
-<li><a href="https://screen-mirroring-recording.techidaily.com/how-to-record-mov-files-on-windows-11-for-2024/"><u>How to Record MOV Files on Windows 11 for 2024</u></a></li>
-<li><a href="https://instagram-video-recordings.techidaily.com/propel-your-social-media-success-best-6-apps-for-instagram-reels-for-2024/"><u>Propel Your Social Media Success Best 6 Apps for Instagram Reels for 2024</u></a></li>
-<li><a href="https://tech-recovery.techidaily.com/understanding-google-hangouts-a-comprehensive-guide/"><u>Understanding Google Hangouts: A Comprehensive Guide</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/updated-the-ultimate-guide-to-online-photo-cropting-accuracy/"><u>[Updated] The Ultimate Guide to Online Photo Cropting Accuracy</u></a></li>
+<li><a href="https://location-fake.techidaily.com/5-easy-ways-to-change-location-on-youtube-tv-on-xiaomi-redmi-13c-drfone-by-drfone-virtual-android/"><u>5 Easy Ways to Change Location on YouTube TV On Xiaomi Redmi 13C | Dr.fone</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/becoming-a-pro-with-obs-gaming-recordings-for-2024/"><u>Becoming a Pro with OBS Gaming Recordings for 2024</u></a></li>
+<li><a href="https://win-amazing.techidaily.com/1722972612604-constraint-a-the-segment-must-be-titled-cooking-with-care-saving-money-and-the-planet-one-dish-at-a-time/"><u>Constraint A: The Segment Must Be Titled Cooking with Care: Saving Money & the Planet One Dish at a Time.</u></a></li>
+<li><a href="https://ai-topics.techidaily.com/guide-on-how-to-enable-the-text-to-speech-function-on-iphone/"><u>Guide on How to Enable the Text to Speech Function on iPhone</u></a></li>
+<li><a href="https://iphone-unlock.techidaily.com/in-2024-5-most-effective-methods-to-unlock-iphone-12-in-lost-mode-drfone-by-drfone-ios/"><u>In 2024, 5 Most Effective Methods to Unlock iPhone 12 in Lost Mode | Dr.fone</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/in-2024-audfreetechunveiled-detailed-look-at-the-new-audio-tool/"><u>In 2024, AudFreeTechUnveiled Detailed Look at the New Audio Tool</u></a></li>
+<li><a href="https://ai-topics.techidaily.com/new-exploring-the-finest-text-to-speech-male-voice-tools-for-natural-output-for-2024/"><u>New Exploring the Finest Text-to-Speech Male Voice Tools for Natural Output for 2024</u></a></li>
+<li><a href="https://ai-topics.techidaily.com/new-in-2024-power-of-ai-thumbnail-generators/"><u>New In 2024, Power of AI Thumbnail Generators</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/supercharge-macbook-pro-with-a-new-ssd/"><u>Supercharge MacBook Pro with a New SSD</u></a></li>
+<li><a href="https://techidaily.com/the-way-to-get-back-lost-messages-from-100-pro-by-fonelab-android-recover-messages/"><u>The way to get back lost messages from 100 Pro</u></a></li>
+<li><a href="https://ai-topics.techidaily.com/updated-in-2024-the-best-text-to-speech-online-tools-to-use/"><u>Updated In 2024, The Best Text-to-Speech Online Tools To Use</u></a></li>
+<li><a href="https://ai-topics.techidaily.com/updated-in-2024-what-is-ai-influencer/"><u>Updated In 2024, What Is AI Influencer?</u></a></li>
+<li><a href="https://ai-topics.techidaily.com/what-is-ai-voice-text-to-speech-for-2024/"><u>What Is AI Voice Text to Speech for 2024</u></a></li>
 </ul></div>
 
