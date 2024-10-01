@@ -1,7 +1,7 @@
 ---
 title: "Strategic Expansion: China's Plan to Enhance State Supercomputing Power by 30%%, Achieve 300 Exaflops in Half a Decade"
-date: 2024-09-19T00:47:08.317Z
-updated: 2024-09-25T20:29:14.140Z
+date: 2024-09-29T00:12:34.717Z
+updated: 2024-09-30T17:56:02.778Z
 tags:
   - desktop
 categories:
@@ -24,10 +24,10 @@ thumbnail: https://thmb.techidaily.com/a42282b650e186f3549f7d2aa960eb18debb612fb
  LATEST VIDEOS FROM tomshardware Tom's Hardware
 
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2136621/26400" target="_top" id="2136621">
-  <img src="//a.impactradius-go.com/display-ad/26400-2136621" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://laganoo.pxf.io/c/5597632/1528688/16446" target="_top" id="1528688">
+  <img src="//a.impactradius-go.com/display-ad/16446-1528688" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136621/26400" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1528688/16446" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Despite being on the Entity List, Inspur continues operations in the U.S
@@ -37,10 +37,16 @@ thumbnail: https://thmb.techidaily.com/a42282b650e186f3549f7d2aa960eb18debb612fb
  The complaint claims that Inspur that inspur continues its operations in the United States under Aivres Systems and Betapex. Inspur allegedly removed its branding from products sold in the U.S. and continues to sell them. For example, Inspur's IR5280M6 server is Aivres's 5280M6 machine, it has the same specification and design, according to HPE's complaint. Meanwhile, Inspur has also worked as a contract maker of servers, according to The Register. Yet, if a U.S. entity plans to work with Inspur (or any other party from the Entity List), it has to get a special license from the U.S. government.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2137395/7443" target="_top" id="2137395">
-  <img src="//a.impactradius-go.com/display-ad/7443-2137395" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2137395/7443" style="position:absolute;visibility:hidden;" border="0" />
+<span id="1374820">
+					<video width="200" height="200" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1374820.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/15852-1374820">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1374820.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:125px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fthefitville.pxf.io%2Fc%2F5597632%2F1374820%2F15852'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1374820/15852" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Stay On the Cutting Edge: Get the Tom's Hardware Newsletter
@@ -66,20 +72,21 @@ thumbnail: https://thmb.techidaily.com/a42282b650e186f3549f7d2aa960eb18debb612fb
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://screen-sharing-recording.techidaily.com/new-the-powerhouse-guide-to-screen-recording-with-tunefab/"><u>[New] The Powerhouse Guide to Screen Recording with Tunefab</u></a></li>
-<li><a href="https://ai-topics.techidaily.com/2024-approved-the-power-of-ai-thumbnail-generators/"><u>2024 Approved The Power of AI Thumbnail Generators</u></a></li>
-<li><a href="https://ai-topics.techidaily.com/2024-approved-top-6-celebrity-text-to-speech-ai-voice-generators-you-may-like/"><u>2024 Approved Top 6 Celebrity Text to Speech AI Voice Generators You May Like</u></a></li>
-<li><a href="https://win11.techidaily.com/a-simple-guide-converting-stunning-hdr-videos-into-compatible-sdr-format/"><u>A Simple Guide: Converting Stunning HDR Videos Into Compatible SDR Format</u></a></li>
-<li><a href="https://some-techniques.techidaily.com/expert-hints-for-efficiently-managing-extra-large-files-iphones-and-macs-for-2024/"><u>Expert Hints for Efficiently Managing Extra-Large Files IPhones & Macs for 2024</u></a></li>
-<li><a href="https://android-unlock.techidaily.com/in-2024-can-i-bypass-a-forgotten-phone-password-of-samsung-galaxy-s23-tactical-edition-by-drfone-android/"><u>In 2024, Can I Bypass a Forgotten Phone Password Of Samsung Galaxy S23 Tactical Edition?</u></a></li>
-<li><a href="https://ai-topics.techidaily.com/in-2024-what-is-ai-influencer/"><u>In 2024, What Is AI Influencer?</u></a></li>
-<li><a href="https://ai-topics.techidaily.com/in-2024-what-is-an-ai-avatar/"><u>In 2024, What Is an AI Avatar?</u></a></li>
-<li><a href="https://win-dash.techidaily.com/install-hp-document-scanner-software-for-windows-pcs/"><u>Install HP Document Scanner Software for Windows PCs</u></a></li>
-<li><a href="https://ai-topics.techidaily.com/new-in-2024-what-is-ai-voice-text-to-speech/"><u>New In 2024, What Is AI Voice Text to Speech?</u></a></li>
-<li><a href="https://ai-topics.techidaily.com/new-in-2024-what-is-an-ai-artist/"><u>New In 2024, What Is an AI Artist?</u></a></li>
-<li><a href="https://ai-topics.techidaily.com/new-what-is-an-ai-artist-in-2024/"><u>New What Is an AI Artist, In 2024</u></a></li>
-<li><a href="https://tech-haven.techidaily.com/step-by-step-guide-sharing-your-chatgpt-conversations-online/"><u>Step-by-Step Guide: Sharing Your ChatGPT Conversations Online</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/ultimate-guide-choosing-the-perfect-keyboard-cushioning-accessory-wrist-rest-2024-edition/"><u>Ultimate Guide: Choosing the Perfect Keyboard Cushioning Accessory (Wrist Rest) - 2024 Edition</u></a></li>
-<li><a href="https://video-screen-grab.techidaily.com/unboxing-high-fidelity-gaming-recorders/"><u>Unboxing High-Fidelity Gaming Recorders</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/024-approved-rising-through-rhythm-how-to-submit-music-to-youtube/"><u>[New] 2024 Approved Rising Through Rhythm How to Submit Music to YouTube</u></a></li>
+<li><a href="https://ai-topics.techidaily.com/2024-approved-5-best-realistic-text-to-speech-ai-voice-generators-you-may-like/"><u>2024 Approved 5 Best Realistic Text to Speech AI Voice Generators You May Like</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ing-a-course-to-your-signature-sphere-for-2024/"><u>Charting a Course to Your Signature Sphere for 2024</u></a></li>
+<li><a href="https://win-amazing.techidaily.com/experience-the-new-and-improved-magicard-rio-pro-driver-compatible-with-win-11-81-and-7/"><u>Experience the New & Improved Magicard Rio Pro Driver - Compatible with Win 11, 8.1 & 7</u></a></li>
+<li><a href="https://hardware-tips.techidaily.com/impact-of-american-sanctions-on-deepcools-role-in-fueling-russias-war-resources-against-ukraine/"><u>Impact of American Sanctions on DeepCool's Role in Fueling Russia’s War Resources Against Ukraine</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/in-2024-best-3-motorola-edge-40-pro-emulator-for-mac-to-run-your-wanted-android-apps-drfone-by-drfone-android/"><u>In 2024, Best 3 Motorola Edge 40 Pro Emulator for Mac to Run Your Wanted Android Apps | Dr.fone</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/24-how-to-use-a-tripod-for-vlogging/"><u>In 2024, How To Use a Tripod for Vlogging</u></a></li>
+<li><a href="https://ai-topics.techidaily.com/in-2024-users-guide-how-to-create-photo-talking-videos-with-the-best-tools/"><u>In 2024, Users Guide How To Create Photo Talking Videos With the Best Tools?</u></a></li>
+<li><a href="https://ai-topics.techidaily.com/new-the-top-10-ai-avatar-generators-for-2024/"><u>New The Top 10 AI Avatar Generators for 2024</u></a></li>
+<li><a href="https://ai-topics.techidaily.com/new-what-is-an-ai-avatar-in-2024/"><u>New What Is an AI Avatar, In 2024</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/no-wi-fi-no-worries-discover-the-best-offline-gaming-on-android-for-2024/"><u>No Wi-Fi, No Worries! Discover the Best Offline Gaming on Android for 2024</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/reimagining-action-recording-with-intova-edge-x-for-2024/"><u>Reimagining Action Recording with Intova Edge X for 2024</u></a></li>
+<li><a href="https://sound-issues.techidaily.com/silenced-mac-heres-a-step-by-step-solution-to-bring-back-your-computers-audio/"><u>Silenced Mac? Here's a Step-by-Step Solution to Bring Back Your Computer's Audio</u></a></li>
+<li><a href="https://ai-topics.techidaily.com/updated-2024-approved-what-is-an-ai-script-generator/"><u>Updated 2024 Approved What Is an AI Script Generator?</u></a></li>
+<li><a href="https://ai-topics.techidaily.com/updated-ai-portrait-generator-getting-closer-to-the-artistic-marvels/"><u>Updated AI Portrait Generator Getting Closer to the Artistic Marvels</u></a></li>
+<li><a href="https://ai-topics.techidaily.com/updated-in-2024-what-is-ai-marketing/"><u>Updated In 2024, What Is AI Marketing?</u></a></li>
 </ul></div>
 
