@@ -1,7 +1,7 @@
 ---
 title: "Strategic Expansion: China's Plan to Enhance State Supercomputing Power by 30%%, Achieve 300 Exaflops in Half a Decade"
-date: 2024-09-29T00:12:34.717Z
-updated: 2024-09-30T17:56:02.778Z
+date: 2024-09-30T04:51:06.102Z
+updated: 2024-10-05T16:02:58.425Z
 tags:
   - desktop
 categories:
@@ -24,10 +24,10 @@ thumbnail: https://thmb.techidaily.com/a42282b650e186f3549f7d2aa960eb18debb612fb
  LATEST VIDEOS FROM tomshardware Tom's Hardware
 
 <!-- affiliate ads begin -->
-<a href="https://laganoo.pxf.io/c/5597632/1528688/16446" target="_top" id="1528688">
-  <img src="//a.impactradius-go.com/display-ad/16446-1528688" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2135397/19272" target="_top" id="2135397">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135397" border="0" alt="https://techidaily.com" width="180" height="90"/>
 </a>
-<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1528688/16446" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135397/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Despite being on the Entity List, Inspur continues operations in the U.S
@@ -37,16 +37,10 @@ thumbnail: https://thmb.techidaily.com/a42282b650e186f3549f7d2aa960eb18debb612fb
  The complaint claims that Inspur that inspur continues its operations in the United States under Aivres Systems and Betapex. Inspur allegedly removed its branding from products sold in the U.S. and continues to sell them. For example, Inspur's IR5280M6 server is Aivres's 5280M6 machine, it has the same specification and design, according to HPE's complaint. Meanwhile, Inspur has also worked as a contract maker of servers, according to The Register. Yet, if a U.S. entity plans to work with Inspur (or any other party from the Entity List), it has to get a special license from the U.S. government.
 
 <!-- affiliate ads begin -->
-<span id="1374820">
-					<video width="200" height="200" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1374820.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/15852-1374820">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1374820.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:125px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fthefitville.pxf.io%2Fc%2F5597632%2F1374820%2F15852'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1374820/15852" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://appsumo.8odi.net/c/5597632/2151888/7443" target="_top" id="2151888">
+  <img src="//a.impactradius-go.com/display-ad/7443-2151888" border="0" alt="https://techidaily.com" width="600" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151888/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Stay On the Cutting Edge: Get the Tom's Hardware Newsletter
@@ -72,21 +66,14 @@ thumbnail: https://thmb.techidaily.com/a42282b650e186f3549f7d2aa960eb18debb612fb
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-webster.techidaily.com/024-approved-rising-through-rhythm-how-to-submit-music-to-youtube/"><u>[New] 2024 Approved Rising Through Rhythm How to Submit Music to YouTube</u></a></li>
-<li><a href="https://ai-topics.techidaily.com/2024-approved-5-best-realistic-text-to-speech-ai-voice-generators-you-may-like/"><u>2024 Approved 5 Best Realistic Text to Speech AI Voice Generators You May Like</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/ing-a-course-to-your-signature-sphere-for-2024/"><u>Charting a Course to Your Signature Sphere for 2024</u></a></li>
-<li><a href="https://win-amazing.techidaily.com/experience-the-new-and-improved-magicard-rio-pro-driver-compatible-with-win-11-81-and-7/"><u>Experience the New & Improved Magicard Rio Pro Driver - Compatible with Win 11, 8.1 & 7</u></a></li>
-<li><a href="https://hardware-tips.techidaily.com/impact-of-american-sanctions-on-deepcools-role-in-fueling-russias-war-resources-against-ukraine/"><u>Impact of American Sanctions on DeepCool's Role in Fueling Russia’s War Resources Against Ukraine</u></a></li>
-<li><a href="https://screen-mirror.techidaily.com/in-2024-best-3-motorola-edge-40-pro-emulator-for-mac-to-run-your-wanted-android-apps-drfone-by-drfone-android/"><u>In 2024, Best 3 Motorola Edge 40 Pro Emulator for Mac to Run Your Wanted Android Apps | Dr.fone</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/24-how-to-use-a-tripod-for-vlogging/"><u>In 2024, How To Use a Tripod for Vlogging</u></a></li>
-<li><a href="https://ai-topics.techidaily.com/in-2024-users-guide-how-to-create-photo-talking-videos-with-the-best-tools/"><u>In 2024, Users Guide How To Create Photo Talking Videos With the Best Tools?</u></a></li>
-<li><a href="https://ai-topics.techidaily.com/new-the-top-10-ai-avatar-generators-for-2024/"><u>New The Top 10 AI Avatar Generators for 2024</u></a></li>
-<li><a href="https://ai-topics.techidaily.com/new-what-is-an-ai-avatar-in-2024/"><u>New What Is an AI Avatar, In 2024</u></a></li>
-<li><a href="https://on-screen-recording.techidaily.com/no-wi-fi-no-worries-discover-the-best-offline-gaming-on-android-for-2024/"><u>No Wi-Fi, No Worries! Discover the Best Offline Gaming on Android for 2024</u></a></li>
-<li><a href="https://extra-approaches.techidaily.com/reimagining-action-recording-with-intova-edge-x-for-2024/"><u>Reimagining Action Recording with Intova Edge X for 2024</u></a></li>
-<li><a href="https://sound-issues.techidaily.com/silenced-mac-heres-a-step-by-step-solution-to-bring-back-your-computers-audio/"><u>Silenced Mac? Here's a Step-by-Step Solution to Bring Back Your Computer's Audio</u></a></li>
-<li><a href="https://ai-topics.techidaily.com/updated-2024-approved-what-is-an-ai-script-generator/"><u>Updated 2024 Approved What Is an AI Script Generator?</u></a></li>
-<li><a href="https://ai-topics.techidaily.com/updated-ai-portrait-generator-getting-closer-to-the-artistic-marvels/"><u>Updated AI Portrait Generator Getting Closer to the Artistic Marvels</u></a></li>
-<li><a href="https://ai-topics.techidaily.com/updated-in-2024-what-is-ai-marketing/"><u>Updated In 2024, What Is AI Marketing?</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/updated-in-2024-luminous-levels-in-android-videography/"><u>[Updated] In 2024, Luminous Levels in Android Videography</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/2024-approved-unceasing-video-archiving-consortia/"><u>2024 Approved Unceasing Video Archiving Consortia</u></a></li>
+<li><a href="https://ai-topics.techidaily.com/how-to-enable-the-text-to-speech-function-on-iphone-for-2024/"><u>How to Enable the Text to Speech Function on iPhone for 2024</u></a></li>
+<li><a href="https://activate-lock.techidaily.com/in-2024-how-to-bypass-icloud-by-checkra1n-even-on-iphone-14-pro-if-youve-tried-everything-by-drfone-ios/"><u>In 2024, How To Bypass iCloud By Checkra1n Even On iPhone 14 Pro If Youve Tried Everything</u></a></li>
+<li><a href="https://ios-unlock.techidaily.com/in-2024-how-to-unlock-your-iphone-13-mini-passcode-4-easy-methods-with-or-without-itunes-by-drfone-ios/"><u>In 2024, How to Unlock Your iPhone 13 mini Passcode 4 Easy Methods (With or Without iTunes)</u></a></li>
+<li><a href="https://screen-mirroring-recording.techidaily.com/in-2024-unlocking-screen-recording-potential-on-your-hp-notebook/"><u>In 2024, Unlocking Screen Recording Potential on Your HP Notebook</u></a></li>
+<li><a href="https://ai-topics.techidaily.com/new-exploring-the-magic-of-ai-selfie-generators/"><u>New Exploring the Magic of AI Selfie Generators</u></a></li>
+<li><a href="https://ai-topics.techidaily.com/the-best-tools-to-convert-text-to-mp3-with-the-best-natural-voices-for-2024/"><u>The Best Tools to Convert Text to MP3 With the Best Natural Voices for 2024</u></a></li>
+<li><a href="https://ai-topics.techidaily.com/updated-a-detailed-review-of-murfai-ai-text-to-speech-tool-for-2024/"><u>Updated A Detailed Review of Murf.ai AI Text-to-Speech Tool for 2024</u></a></li>
 </ul></div>
 
