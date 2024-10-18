@@ -1,7 +1,7 @@
 ---
 title: Russia Leaps Forward with Pioneering 128-Core CPU Design to Elevate Supercomputer Performance
-date: 2024-10-04T16:38:21.655Z
-updated: 2024-10-11T20:05:24.718Z
+date: 2024-10-10T17:26:25.535Z
+updated: 2024-10-17T17:29:06.713Z
 tags:
   - desktop
 categories:
@@ -117,31 +117,25 @@ _**Storage:**_   _2TB M.2 NVMe SSD_
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://video-screen-grab.techidaily.com/updated-silence-issue-fixing-audio-absence-in-obs-for-2024/"><u>[Updated] Silence Issue Fixing Audio Absence in OBS for 2024</u></a></li>
-<li><a href="https://article-helps.techidaily.com/updated-tuneful-texts-musical-infusion-on-whatsapp/"><u>[Updated] Tuneful Texts Musical Infusion on WhatsApp</u></a></li>
-<li><a href="https://extra-support.techidaily.com/2024-approved-making-multimedia-memories-with-picshot-tools/"><u>2024 Approved Making Multimedia Memories with Picshot Tools</u></a></li>
-<li><a href="https://digital-screen-recording.techidaily.com/2024-approved-uncomplicated-video-logging-tool-w10/"><u>2024 Approved Uncomplicated Video Logging Tool W10</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/adapting-to-instagrams-evolved-content-curation-for-2024/"><u>Adapting to Instagram's Evolved Content Curation for 2024</u></a></li>
-<li><a href="https://ai-topics.techidaily.com/best-6-celebrity-text-to-speech-ai-voice-generators-you-may-like-for-2024/"><u>Best 6 Celebrity Text to Speech AI Voice Generators You May Like for 2024</u></a></li>
-<li><a href="https://ai-topics.techidaily.com/decoding-tech-trends-with-toms-expert-reviews/"><u>Decoding Tech Trends with Tom's Expert Reviews</u></a></li>
-<li><a href="https://some-tips.techidaily.com/enhance-your-pcs-creativity-with-advanced-ai-powered-image-generation/"><u>Enhance Your PC's Creativity with Advanced AI-Powered Image Generation</u></a></li>
-<li><a href="https://fake-location.techidaily.com/fake-the-location-to-get-around-the-mlb-blackouts-on-samsung-galaxy-s21-fe-5g-2023-drfone-by-drfone-virtual-android/"><u>Fake the Location to Get Around the MLB Blackouts on Samsung Galaxy S21 FE 5G (2023) | Dr.fone</u></a></li>
-<li><a href="https://ai-topics.techidaily.com/1723262408141-future-proof-your-setup-with-cutting-edge-hardware-insights-from-your-site-name-tech-enthusiasts-hub/"><u>Future-Proof Your Setup with Cutting-Edge Hardware Insights From [Your Site Name] – Tech Enthusiast's Hub!</u></a></li>
-<li><a href="https://extra-resources.techidaily.com/in-2024-closer-look-easy-methods-to-zoom-in-minecraft/"><u>In 2024, Closer Look Easy Methods to Zoom in Minecraft</u></a></li>
-<li><a href="https://extra-support.techidaily.com/in-2024-speedy-strategies-for-crafting-a-facebook-visual-narrative/"><u>In 2024, Speedy Strategies for Crafting a Facebook Visual Narrative</u></a></li>
-<li><a href="https://ai-topics.techidaily.com/navigate-the-world-of-technology-with-ease-at-tomgadgetinsights/"><u>Navigate the World of Technology with Ease at TomGadgetInsights</u></a></li>
-<li><a href="https://ai-topics.techidaily.com/take-your-server-game-anywhere-the-latest-fly-away-kit-featuring-ampere-altra-cpu-boasting-256-cores-and-exceptional-storage-and-memory-specs-480tb-nvme4tb-110/"><u>Take Your Server Game Anywhere: The Latest Fly-Away Kit Featuring Ampere Altra CPU, Boasting 256 Cores, and Exceptional Storage & Memory Specs (480TB NVme/4TB RAM)</u></a></li>
-<li><a href="https://fox-hovers.techidaily.com/the-ultimate-guide-to-adding-time-markers-on-youtubes-for-2024/"><u>The Ultimate Guide to Adding Time Markers on YouTubes for 2024</u></a></li>
-<li><a href="https://ai-topics.techidaily.com/toms-tech-hub-your-ultimate-guide-to-computer-hardware/"><u>Tom's Tech Hub: Your Ultimate Guide to Computer Hardware</u></a></li>
-<li><a href="https://ai-topics.techidaily.com/toms-tech-review-in-depth-computer-and-hardware-insights/"><u>Tom's Tech Review: In-Depth Computer & Hardware Insights</u></a></li>
-<li><a href="https://ai-topics.techidaily.com/understanding-softwares-path-to-progress-and-overhaul/"><u>Understanding Software's Path to Progress and Overhaul</u></a></li>
-<li><a href="https://ai-topics.techidaily.com/updated-a-detailed-guide-to-making-your-pictures-speak-for-2024/"><u>Updated A Detailed Guide to Making Your Pictures Speak for 2024</u></a></li>
+<li><a href="https://youtube-stream.techidaily.com/2024-approved-mastering-sony-vegas-youtube-video-editing-basics/"><u>2024 Approved Mastering Sony Vegas YouTube Video Editing Basics</u></a></li>
+<li><a href="https://ai-topics.techidaily.com/breakthrough-how-to-make-a-picture-speak-for-2024/"><u>Breakthrough How to Make A Picture Speak for 2024</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/from-zero-to-zoom-expert-launching-successful-webinars-for-2024/"><u>From Zero to Zoom Expert Launching Successful Webinars for 2024</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/in-2024-4-ways-to-transfer-music-from-vivo-v29-pro-to-iphone-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, 4 Ways to Transfer Music from Vivo V29 Pro to iPhone | Dr.fone</u></a></li>
+<li><a href="https://ai-topics.techidaily.com/in-2024-easy-tutorial-how-to-make-a-talking-cartoon-video-step-by-step/"><u>In 2024, Easy Tutorial How To Make a Talking Cartoon Video Step-by-Step</u></a></li>
+<li><a href="https://ai-topics.techidaily.com/in-2024-exploring-ai-face-generators/"><u>In 2024, Exploring AI Face Generators</u></a></li>
+<li><a href="https://bypass-frp.techidaily.com/in-2024-hassle-free-ways-to-remove-frp-lock-on-tecno-camon-20-phones-withwithout-a-pc-by-drfone-android/"><u>In 2024, Hassle-Free Ways to Remove FRP Lock on Tecno Camon 20 Phones with/without a PC</u></a></li>
+<li><a href="https://review-topics.techidaily.com/in-2024-how-to-change-google-play-location-on-vivo-v27-pro-drfone-by-drfone-virtual-android/"><u>In 2024, How to Change Google Play Location On Vivo V27 Pro | Dr.fone</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/introducing-urdu-must-know-words-and-phrases-collection/"><u>Introducing Urdu: Must-Know Words & Phrases Collection</u></a></li>
+<li><a href="https://review-topics.techidaily.com/mov-playback-issues-on-samsung-galaxy-f14-5g-by-aiseesoft-video-converter-play-mov-on-android/"><u>MOV playback issues on Samsung Galaxy F14 5G</u></a></li>
+<li><a href="https://ai-topics.techidaily.com/new-how-to-make-talking-emoji-on-iphone-in-easy-steps-for-2024/"><u>New How To Make Talking Emoji on iPhone in Easy Steps for 2024</u></a></li>
+<li><a href="https://extra-support.techidaily.com/step-by-step-obtaining-no-cost-photo-frames-for-2024/"><u>Step-by-Step Obtaining No-Cost Photo Frames for 2024</u></a></li>
+<li><a href="https://ai-topics.techidaily.com/updated-what-is-ai-background-generator-for-2024/"><u>Updated What Is AI Background Generator for 2024</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1938716/19272" target="_top" id="1938716">
-  <img src="//a.impactradius-go.com/display-ad/19272-1938716" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://laganoo.pxf.io/c/5597632/1528681/16446" target="_top" id="1528681">
+  <img src="//a.impactradius-go.com/display-ad/16446-1528681" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1938716/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1528681/16446" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
