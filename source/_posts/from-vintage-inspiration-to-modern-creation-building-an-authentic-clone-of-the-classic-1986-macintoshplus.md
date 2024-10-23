@@ -1,7 +1,7 @@
 ---
 title: "From Vintage Inspiration to Modern Creation: Building an Authentic Clone of the Classic 1986 Macintosh+"
-date: 2024-10-16T17:49:20.769Z
-updated: 2024-10-17T20:56:42.092Z
+date: 2024-10-20T16:01:46.063Z
+updated: 2024-10-23T17:44:33.323Z
 tags:
   - desktop
 categories:
@@ -56,25 +56,37 @@ The 2024 World Server Throwing Championship (WSTC) organizers are[calling for en
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://remote-screen-capture.techidaily.com/new-desktop-capture-showdown-select-between-obs-and-shadowplay-for-2024/"><u>[New] Desktop Capture Showdown Select Between OBS and ShadowPlay for 2024</u></a></li>
-<li><a href="https://facebook-videos.techidaily.com/new-restore-your-viewing-experience-reclaim-the-icon/"><u>[New] Restore Your Viewing Experience - Reclaim the Icon</u></a></li>
-<li><a href="https://facebook-video-footage.techidaily.com/updated-finding-the-sweet-spot-optimal-youtube-video-upload-rates-for-growth/"><u>[Updated] Finding the Sweet Spot Optimal YouTube Video Upload Rates for Growth</u></a></li>
-<li><a href="https://vp-tips.techidaily.com/updated-the-pros-playlist-shuffle-manual/"><u>[Updated] The Pro's Playlist Shuffle Manual</u></a></li>
-<li><a href="https://ai-topics.techidaily.com/2024-approved-how-to-make-a-talking-ai-avatar-from-photos-easy-guide/"><u>2024 Approved How to Make a Talking AI Avatar From Photos Easy Guide</u></a></li>
-<li><a href="https://extra-information.techidaily.com/elevate-your-aerial-artistry-best-drone-and-editor-match-ups-ranked/"><u>Elevate Your Aerial Artistry Best Drone & Editor Match-Ups Ranked</u></a></li>
-<li><a href="https://ai-topics.techidaily.com/new-2024-approved-how-to-create-funny-talking-avatars-using-oddcast-text-to-speech/"><u>New 2024 Approved How to Create Funny Talking Avatars Using Oddcast Text to Speech</u></a></li>
-<li><a href="https://ai-topics.techidaily.com/new-how-to-generate-speech-from-text-the-best-text-to-speech-converters-for-2024/"><u>New How To Generate Speech From Text | The Best Text-to-Speech Converters for 2024</u></a></li>
-<li><a href="https://ai-topics.techidaily.com/new-in-2024-how-to-create-funny-talking-avatars-using-oddcast-text-to-speech/"><u>New In 2024, How to Create Funny Talking Avatars Using Oddcast Text to Speech</u></a></li>
-<li><a href="https://ai-topics.techidaily.com/new-the-recommended-natural-ai-hindi-voice-generator/"><u>New The Recommended Natural AI Hindi Voice Generator</u></a></li>
-<li><a href="https://ai-topics.techidaily.com/new-what-is-an-ai-artist-for-2024/"><u>New What Is an AI Artist for 2024</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/review-of-the-swagtron-swagboard-t1-a-fast-glide-with-a-high-price-tag/"><u>Review of the Swagtron Swagboard T1: A Fast Glide with a High Price Tag</u></a></li>
-<li><a href="https://video-content-creator.techidaily.com/updated-in-2024-the-ultimate-list-of-free-3d-animation-apps-for-android-and-iphone/"><u>Updated In 2024, The Ultimate List of Free 3D Animation Apps for Android and iPhone</u></a></li>
+<li><a href="https://article-posts.techidaily.com/updated-2024-approved-expert-analysis-of-samsungs-2023-photo-enhancement-suite/"><u>[Updated] 2024 Approved Expert Analysis of Samsung’s 2023 Photo Enhancement Suite</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ed-2024-approved-expert-tips-for-streamlining-youtube-audio-into-imovie/"><u>[Updated] 2024 Approved Expert Tips for Streamlining YouTube Audio Into iMovie</u></a></li>
+<li><a href="https://discord-videos.techidaily.com/updated-mastering-discord-inserting-emojis-into-your-status-bar/"><u>[Updated] Mastering Discord Inserting Emojis Into Your Status Bar</u></a></li>
+<li><a href="https://article-posts.techidaily.com/2024-approved-beyond-entertainment-vrs-utility/"><u>2024 Approved Beyond Entertainment VR's Utility</u></a></li>
+<li><a href="https://youtube-stream.techidaily.com/2024-approved-streamline-your-browsing-with-these-7-android-centric-adblockers/"><u>2024 Approved Streamline Your Browsing with These 7 Android-Centric AdBlockers</u></a></li>
+<li><a href="https://ai-topics.techidaily.com/2024-approved-what-is-ai-text-to-video/"><u>2024 Approved What Is AI Text to Video?</u></a></li>
+<li><a href="https://ai-topics.techidaily.com/2024-approved-what-is-an-ai-artist/"><u>2024 Approved What Is an AI Artist?</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/comprehensive-review-of-the-dell-xps-13-7390-convertible-ultrabook-beauty-meets-flexibility/"><u>Comprehensive Review of the Dell XPS 13 7390 Convertible Ultrabook - Beauty Meets Flexibility</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/how-to-get-and-use-pokemon-go-promo-codes-on-google-pixel-fold-drfone-by-drfone-virtual-android/"><u>How to Get and Use Pokemon Go Promo Codes On Google Pixel Fold | Dr.fone</u></a></li>
+<li><a href="https://ai-topics.techidaily.com/in-2024-what-is-an-ai-headshot-generator/"><u>In 2024, What Is an AI Headshot Generator?</u></a></li>
+<li><a href="https://ai-topics.techidaily.com/new-how-to-define-ai-video-in-2024/"><u>New How to Define AI Video, In 2024</u></a></li>
+<li><a href="https://ai-topics.techidaily.com/new-in-2024-new-essential-details-of-making-perfect-talking-face/"><u>New In 2024, New Essential Details of Making Perfect Talking Face</u></a></li>
+<li><a href="https://ai-topics.techidaily.com/new-what-is-ai-text-to-video-in-2024/"><u>New What Is AI Text to Video, In 2024</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/pajama-plots-reviewed-analyzing-childrens-video-stories-for-2024/"><u>Pajama Plots Reviewed Analyzing Children's Video Stories for 2024</u></a></li>
+<li><a href="https://fox-that.techidaily.com/solve-top-5-common-iphone-issues-with-simple-dfu-mode-tricks/"><u>Solve Top 5 Common iPhone Issues with Simple DFU Mode Tricks</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/troubleshooting-gpu-issues/"><u>Troubleshooting GPU Issues</u></a></li>
+<li><a href="https://ai-topics.techidaily.com/updated-a-detailed-and-trustworthy-review-of-murfai-ai-text-to-speech-tool/"><u>Updated A Detailed and Trustworthy Review of Murf.ai AI Text-to-Speech Tool</u></a></li>
+<li><a href="https://ai-topics.techidaily.com/updated-breakthrough-how-to-make-a-picture-speak-for-2024/"><u>Updated Breakthrough How to Make A Picture Speak for 2024</u></a></li>
+<li><a href="https://ai-topics.techidaily.com/updated-in-2024-the-best-english-voice-generator-to-convert-text-into-desired-accent/"><u>Updated In 2024, The Best English Voice Generator To Convert Text Into Desired Accent</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<a href="https://malaysia-healthcare-travel-council.pxf.io/c/5597632/1557742/17382" target="_top" id="1557742">
-  <img src="//a.impactradius-go.com/display-ad/17382-1557742" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://malaysia-healthcare-travel-council.pxf.io/i/5597632/1557742/17382" style="position:absolute;visibility:hidden;" border="0" />
+<span id="1424527">
+					<video width="864" height="1536" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1424527.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/16446-1424527">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1424527.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Flaganoo.pxf.io%2Fc%2F5597632%2F1424527%2F16446'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1424527/16446" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 

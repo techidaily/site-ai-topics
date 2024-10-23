@@ -1,7 +1,7 @@
 ---
 title: "Strategic Expansion: China's Plan to Enhance State Supercomputing Power by 30%%, Achieve 300 Exaflops in Half a Decade"
-date: 2024-10-16T17:31:19.444Z
-updated: 2024-10-17T18:19:50.738Z
+date: 2024-10-17T18:27:16.037Z
+updated: 2024-10-23T16:35:44.335Z
 tags:
   - desktop
 categories:
@@ -24,16 +24,16 @@ thumbnail: https://thmb.techidaily.com/a42282b650e186f3549f7d2aa960eb18debb612fb
  LATEST VIDEOS FROM tomshardware Tom's Hardware
 
 <!-- affiliate ads begin -->
-<span id="1982508">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1982508.png"
+<span id="1424533">
+					<video width="864" height="1536" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1424533.png"
            onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1982508">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1982508.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	   <source src="//a.impactradius-go.com/display-ad/16446-1424533">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1424533.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
 	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1982508%2F22993'), '_blank');void(0);">Click here</a></div>
+	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Flaganoo.pxf.io%2Fc%2F5597632%2F1424533%2F16446'), '_blank');void(0);">Click here</a></div>
 </span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1982508/22993" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1424533/16446" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Despite being on the Entity List, Inspur continues operations in the U.S
@@ -43,10 +43,10 @@ thumbnail: https://thmb.techidaily.com/a42282b650e186f3549f7d2aa960eb18debb612fb
  The complaint claims that Inspur that inspur continues its operations in the United States under Aivres Systems and Betapex. Inspur allegedly removed its branding from products sold in the U.S. and continues to sell them. For example, Inspur's IR5280M6 server is Aivres's 5280M6 machine, it has the same specification and design, according to HPE's complaint. Meanwhile, Inspur has also worked as a contract maker of servers, according to The Register. Yet, if a U.S. entity plans to work with Inspur (or any other party from the Entity List), it has to get a special license from the U.S. government.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2087253/19272" target="_top" id="2087253">
-  <img src="//a.impactradius-go.com/display-ad/19272-2087253" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2135366/19272" target="_top" id="2135366">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135366" border="0" alt="https://techidaily.com" width="160" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2087253/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135366/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Stay On the Cutting Edge: Get the Tom's Hardware Newsletter
@@ -72,20 +72,20 @@ thumbnail: https://thmb.techidaily.com/a42282b650e186f3549f7d2aa960eb18debb612fb
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-access.techidaily.com/new-exploring-the-power-of-visual-effects-in-editing/"><u>[New] Exploring the Power of Visual Effects in Editing</u></a></li>
-<li><a href="https://extra-guidance.techidaily.com/new-pros-playbook-achieving-crystal-clear-slow-motion-with-hero-10/"><u>[New] Pros' Playbook Achieving Crystal Clear Slow Motion with Hero 10</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/uick-youtube-revenue-assessments-available-for-2024/"><u>[New] Quick YouTube Revenue Assessments Available for 2024</u></a></li>
-<li><a href="https://screen-recording.techidaily.com/updated-instant-images-guide-easy-recording-tips-dell/"><u>[Updated] Instant Images Guide Easy Recording Tips (Dell)</u></a></li>
-<li><a href="https://video-capture.techidaily.com/updated-moons-magic-dos-and-donts-of-immersive-night-photography-for-2024/"><u>[Updated] Moon's Magic Do's & Don'ts of Immersive Night Photography for 2024</u></a></li>
-<li><a href="https://windows11.techidaily.com/a-detailed-guide-turning-off-windows-update-restrictions/"><u>A Detailed Guide: Turning Off Windows Update Restrictions</u></a></li>
-<li><a href="https://ai-topics.techidaily.com/easy-tutorial-how-to-record-and-send-talking-emoji-for-iphone-for-2024/"><u>Easy Tutorial How to Record and Send Talking Emoji for iPhone for 2024</u></a></li>
-<li><a href="https://extra-information.techidaily.com/harmonious-filmmaking-mastering-imovie-audio/"><u>Harmonious Filmmaking Mastering iMovie Audio</u></a></li>
-<li><a href="https://ai-topics.techidaily.com/new-demystifying-ai-game-generators-for-2024/"><u>New Demystifying AI Game Generators for 2024</u></a></li>
-<li><a href="https://ai-topics.techidaily.com/new-what-is-ai-advertising-for-2024/"><u>New What Is AI Advertising for 2024</u></a></li>
-<li><a href="https://ai-topics.techidaily.com/new-what-is-an-ai-video-maker/"><u>New What Is an AI Video Maker?</u></a></li>
-<li><a href="https://tech-revival.techidaily.com/unleash-your-imagination-11-ai-driven-techniques-to-build-captivating-book-characters/"><u>Unleash Your Imagination: 11 AI-Driven Techniques to Build Captivating Book Characters</u></a></li>
-<li><a href="https://ai-topics.techidaily.com/updated-how-to-create-funny-talking-avatars-using-oddcast-text-to-speech-for-2024/"><u>Updated How to Create Funny Talking Avatars Using Oddcast Text to Speech for 2024</u></a></li>
-<li><a href="https://ai-topics.techidaily.com/updated-in-2024-top-10-talking-photo-online-tools-you-have-to-try/"><u>Updated In 2024, Top 10 Talking Photo Online Tools You Have To Try</u></a></li>
-<li><a href="https://ai-topics.techidaily.com/what-is-an-ai-avatar-for-2024/"><u>What Is an AI Avatar for 2024</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/new-in-2024-exploring-video-playback-vlc-vs-mx/"><u>[New] In 2024, Exploring Video Playback VLC Vs. MX</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/updated-maximizing-visibility-post-facebook-update-for-2024/"><u>[Updated] Maximizing Visibility Post-Facebook Update for 2024</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/2024-approved-grid-gurus-find-the-ultimate-photo-organizing-apps/"><u>2024 Approved Grid Gurus Find the Ultimate Photo Organizing Apps</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/comprehensive-review-of-the-cost-effective-monoprice-digital-art-tool/"><u>Comprehensive Review of the Cost-Effective Monoprice Digital Art Tool</u></a></li>
+<li><a href="https://blog-min.techidaily.com/how-to-get-out-of-dfu-mode-on-iphone-6-plus-drfone-by-drfone-ios-system-repair-ios-system-repair/"><u>How To Get Out of DFU Mode on iPhone 6 Plus? | Dr.fone</u></a></li>
+<li><a href="https://smart-video-creator.techidaily.com/in-2024-how-to-run-windows-and-mac-os-video-editing-apps-on-your-chromebook/"><u>In 2024, How to Run Windows and Mac OS Video Editing Apps on Your Chromebook</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/leapfrogging-to-photo-editing-mastery-with-lunapic-for-2024/"><u>Leapfrogging to Photo Editing Mastery with LunaPic for 2024</u></a></li>
+<li><a href="https://games-able.techidaily.com/learn-to-run-baldurs-gate-3-flawlessly-via-crossover-on-macos/"><u>Learn to Run Baldur’s Gate 3 Flawlessly via CrossOver on macOS</u></a></li>
+<li><a href="https://ai-topics.techidaily.com/new-2024-approved-what-is-ai-voice-over/"><u>New 2024 Approved What Is AI Voice Over?</u></a></li>
+<li><a href="https://ai-topics.techidaily.com/new-design-cartoon-images-with-the-best-tools/"><u>New Design Cartoon Images With the Best Tools</u></a></li>
+<li><a href="https://ai-topics.techidaily.com/new-the-best-english-voice-generator-to-convert-text-into-desired-accent/"><u>New The Best English Voice Generator To Convert Text Into Desired Accent</u></a></li>
+<li><a href="https://ai-topics.techidaily.com/new-top-5-best-tools-to-convert-text-to-audio-online-for-free-for-2024/"><u>New Top 5 Best Tools to Convert Text to Audio Online for Free for 2024</u></a></li>
+<li><a href="https://ai-topics.techidaily.com/new-what-is-ai-marketing/"><u>New What Is AI Marketing?</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/top-spots-for-classic-ringtone-downloads/"><u>Top Spots for Classic Ringtone Downloads</u></a></li>
+<li><a href="https://ai-topics.techidaily.com/updated-how-to-make-animation-talk-explained-with-easy-steps/"><u>Updated How To Make Animation Talk? Explained with Easy Steps</u></a></li>
 </ul></div>
 
