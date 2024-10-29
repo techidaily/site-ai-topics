@@ -1,7 +1,7 @@
 ---
 title: Updated 2024 Approved How to Create Funny Talking Avatars Using Oddcast Text to Speech
-date: 2024-10-22T16:19:51.487Z
-updated: 2024-10-23T18:23:40.641Z
+date: 2024-10-25T02:35:03.750Z
+updated: 2024-10-28T16:57:20.992Z
 tags: 
   - ai text to speech
   - text to speech
@@ -24,6 +24,13 @@ In this article, we will show you **Oddcast TTS** **demo** to create your own fu
 
 Oddcast is a company that specializes in text to speech (TTS) technology and solutions for web developers and content creators. **Oddcast online** TTS is a technology that converts text into natural sounding speech. It offers two types of TTS products: a cloud based API for developers that enables real-time audio in any online app or website, and a downloadable mp3 audio for games, apps, tutorials or videos.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2111964/7443" target="_top" id="2111964">
+  <img src="//a.impactradius-go.com/display-ad/7443-2111964" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2111964/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### Compatibility of Oddcast
 
 1. Compatible with various platforms and languages, such as HTML5, Flash, JavaScript, PHP, ASP.NET, and more
@@ -32,6 +39,13 @@ Oddcast is a company that specializes in text to speech (TTS) technology and sol
 ### Functions of Oddcast
 
 1. Can be used to create talking avatars, interactive learning materials, e-books, quizzes, games, cartoons, podcasts, ads, presentations, demos, voice assistance, and more
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2100527/7443" target="_top" id="2100527">
+  <img src="//a.impactradius-go.com/display-ad/7443-2100527" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2100527/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### Key Features of Oddcast
 
@@ -145,13 +159,6 @@ In this article, we will show you **Oddcast TTS** **demo** to create your own fu
 
 Oddcast is a company that specializes in text to speech (TTS) technology and solutions for web developers and content creators. **Oddcast online** TTS is a technology that converts text into natural sounding speech. It offers two types of TTS products: a cloud based API for developers that enables real-time audio in any online app or website, and a downloadable mp3 audio for games, apps, tutorials or videos.
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2137394/7443" target="_top" id="2137394">
-  <img src="//a.impactradius-go.com/display-ad/7443-2137394" border="0" alt="https://techidaily.com" width="600" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2137394/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### Compatibility of Oddcast
 
 1. Compatible with various platforms and languages, such as HTML5, Flash, JavaScript, PHP, ASP.NET, and more
@@ -209,13 +216,6 @@ Below the language and voice menus, you will see four sliders that allow you to 
 
 ![oddcast-text-to-speech-demo-5.jpg](https://images.wondershare.com/virbo/features/text-to-speech/oddcast-text-to-speech-demo-5.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2151892/7443" target="_top" id="2151892">
-  <img src="//a.impactradius-go.com/display-ad/7443-2151892" border="0" alt="https://techidaily.com" width="600" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151892/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 #### Step 6
 
 Below the sliders, you will see a box where you can type or paste your text that you want your character to say aloud. You can use up to 1000 characters per request for this box. You can also use SSML (Speech Synthesis Markup Language) tags to add some pauses, emphasis, or other effects to your speech. SSML is a standard way of controlling how text is spoken by a speech synthesizer. You can use SSML tags by enclosing them in angle brackets (< >). For example, if you want to add a pause of half a second between two words, you can use the tag <break time=“500ms”/> between them. If you want to add some emphasis on a word or phrase, you can use the tag <emphasis> around them.
@@ -239,6 +239,13 @@ That’s it! You have created your own funny talking avatar using **Oddcast Text
 While **Oddcast Text to Speech** Tool is a great tool for creating funny talking avatars, some of you might be wondering if there are any other online tools that can do the same or even better. Well, the answer is yes! There is an awesome alternative to Oddcast that you should definitely check out - and it’s Virbo.
 
 [Wondershare Virbo](https://virbo.wondershare.com/ai-voice.html) is an AI video and voice generator that enables you to create stunning and engaging videos with realistic avatars and natural voices in over 120 languages and accents. You can use Wondershare Virbo for various purposes, such as marketing, education, entertainment, social media, voice assistance, and more.
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2075483/7443" target="_top" id="2075483">
+  <img src="//a.impactradius-go.com/display-ad/7443-2075483" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2075483/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### Key Features of Virbo
 
@@ -373,13 +380,6 @@ Listnr offer one of the **most realistic text to speech** generation system that
 5. The user interface of this **realistic text to speech software** is intuitive and user-friendly
 6. Natural and Expressive Voice Generation
 
-<!-- affiliate ads begin -->
-<a href="https://bluettide.pxf.io/c/5597632/2141683/17092" target="_top" id="2141683">
-  <img src="//a.impactradius-go.com/display-ad/17092-2141683" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://bluettide.pxf.io/i/5597632/2141683/17092" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### 4\. Playht
 
 PlayHT is a sophisticated paid and **free realistic text to speech** generator that employs cutting-edge technology to convert written content into lifelike speech. This technology utilizes deep learning and neural networks to create a seamless and authentic auditory experience, making it sound as if a human is delivering the content.
@@ -560,13 +560,6 @@ Built using next generation AI speech technology, PlayHT’s voices accurately m
 5. It has an extensive range of supported formats.
 6. With Play.ht, you can listen and preview text before converting it to speech
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2123728/7443" target="_top" id="2123728">
-  <img src="//a.impactradius-go.com/display-ad/7443-2123728" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123728/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### 5\. Speechify
 
 Speechify takes text-to-speech technology to a whole new level. Its advanced technology utilizes powerful algorithms to convert written content, such as articles, books, or documents, into clear and natural-sounding audio. This process involves analyzing the text, interpreting its context, and then rendering it into speech with remarkable accuracy. Users can simply input the text, select preferences, and let Speechify take care of the rest.
@@ -617,13 +610,6 @@ In a world where technology is constantly pushing boundaries, realistic TTS AI v
 In the era of technological wonders, where innovation seems boundless, the fusion of artificial intelligence and celebrity culture has given rise to an intriguing phenomenon: **Celebrity Text to Speech** (TTS) AI Voice Generators. The allure of these generators lies in their ability to breathe life into digital content with the familiar voices of well-known personalities. From enhancing entertainment experiences to revolutionizing accessibility tools, these **text to speech celebrity voices** have carved a unique niche in the digital realm.
 
 In this article, we embark on a journey to explore the realm of **celebrity TTS** AI voice generators, focusing on the top 6 that have captured the imagination of users worldwide. This article is your compass to navigate through the fascinating world of AI-powered voices and discover the generators that might just become your new favorites.
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1868499/19272" target="_top" id="1868499">
-  <img src="//a.impactradius-go.com/display-ad/19272-1868499" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1868499/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Part 1: Why Do People Prefer Celebrity AI Voices
 
@@ -903,6 +889,13 @@ If you want to make things more interesting, fun, or educational, Resemble AI is
 3. Write your words in the box and click "Synthesize."
 4. Wait a little, and you can listen to a part of your audio.
 5. Save the audio or share it on social media.
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135407/19272" target="_top" id="2135407">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135407" border="0" alt="https://techidaily.com" width="120" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135407/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### 3\. Voicery
 
@@ -1138,13 +1131,6 @@ Mac users mainly have no idea that they can use the in-built **text-to-speech ma
 
 ![adjust the spoken content settings](https://images.wondershare.com/virbo/features/text-to-speech/text-to-speech-male-voice-8.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2012415/19272" target="_top" id="2012415">
-  <img src="//a.impactradius-go.com/display-ad/19272-2012415" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2012415/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## Wrapping Up
 
 As stated in this article, you can easily use the innovative **text-to-speech male voice** software. This can turn any type of text into male voices without any issue. The online tools that can help you with this are Speechify and Speakatoo.
@@ -1175,13 +1161,6 @@ To start, open Virbo on your device and select the "Text to Speech" feature from
 
 ![tap on convert now button](https://images.wondershare.com/virbo/features/text-to-speech/text-to-speech-male-voice-5.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135356/19272" target="_top" id="2135356">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135356" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135356/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 #### Step 2: Start Convert Text to Speech
 
 To proceed, paste the text in the “Text to Speech” interface and tap the “Create Video” button. Select the dimension from the orientation options of Virbo, such as Portrait Video and Landscape Video, and hit the “Create Now” button. Wait a few moments and then download the video on the device.
@@ -1195,13 +1174,6 @@ Mac users mainly have no idea that they can use the in-built **text-to-speech ma
 **Step 1:**Start your Mac and click the "Apple" icon to locate and access the System Settings. Afterward, go into the "Accessibility" settings and click the "Spoken Content" option.
 
 ![access the spoken content option](https://images.wondershare.com/virbo/features/text-to-speech/text-to-speech-male-voice-7.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2144299/7443" target="_top" id="2144299">
-  <img src="//a.impactradius-go.com/display-ad/7443-2144299" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144299/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 **Step 2:**Next, locate "Speak Selection" and enable it. You can also select the "Info" icon for managing settings such as Highlight Content, Word Content, Show Controller, and more. Finally, confirm the settings by pressing the "OK" button.
 
@@ -1423,6 +1395,13 @@ Moreover, it has 200+ natural-sounding voices, which is more than enough. Other 
 
 ![recommended-natural-ai-hindi-voice-generators-3.jpg](https://images.wondershare.com/virbo/images2023/tts/recommended-natural-ai-hindi-voice-generators-3.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://sentrypc.7eer.net/c/5597632/398449/3022" target="_top" id="398449">
+  <img src="//a.impactradius-go.com/display-ad/3022-398449" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://sentrypc.7eer.net/i/5597632/398449/3022" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 #### Key Features
 
 1. With Notevibes, you can add pauses in the speech and change its pitch or speed.
@@ -1547,6 +1526,19 @@ Moreover, it includes more than 850 AI voices that will sound realistic. This **
 2. You can insert natural breathing pauses in your AI voice using this tool. This will make the generated voice natural and realistic.
 3. Through this voice generator, you can add auto inflections to the AI voice to produce professional results.
 
+<!-- affiliate ads begin -->
+<span id="1982570">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1982570.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1982570">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1982570.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1982570%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1982570/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### 4\. SpeechGen.io
 
 Do you want a basic **Chinese accent generator**? This tool has a simple interface that can help beginners. You can use this tool for commercial purposes to create voiceovers in different languages. The compatible audio file formats are MP3, WAV, and OGG. By buying its premium plans, you can convert 500,000 characters with great ease. Moreover, you can have unlimited downloads of your generated AI voices.
@@ -1599,6 +1591,13 @@ Using such tools, you can convert the textual content into an AI voice in your d
 
 Generating speech in different languages can come with various benefits. It can help language learners, businessmen, and educationists ensure effective global communication. In this section, you can find many reasons for generating speech in many languages.
 
+<!-- affiliate ads begin -->
+<a href="https://25home.pxf.io/c/5597632/2148645/16836" target="_top" id="2148645">
+  <img src="//a.impactradius-go.com/display-ad/16836-2148645" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2148645/16836" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### 1\. Learning Different Cultures
 
 The cultural history of any nation or country lies in its language. If you want to know about the different cultural backgrounds of countries, you should understand their language. It will help you celebrate the prominent linguistic diversity of many cultures. Thus, generating speech in different languages can help you absorb the traditional knowledge of any certain culture.
@@ -1646,6 +1645,13 @@ Speechify can also convert PDFs and webpages into an AI voice in your chosen lan
 1. Speechify offers a speed reader to help modify the listening speed. It can convert your text into AI voice with 9X faster speed.
 2. With this tool, you can explore the exclusive voices of famous celebrities. For example, you can select Gwyneth Paltrow and Snoop Dogg as your AI voice.
 3. You can save your created AI voices in the library of this tool. Moreover, the changes will be automatically synced across all your devices.
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2137413/7443" target="_top" id="2137413">
+  <img src="//a.impactradius-go.com/display-ad/7443-2137413" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2137413/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### 3\. Speakatoo
 
@@ -1715,14 +1721,20 @@ However, if you want a more advanced **Russian voice generator** that supports m
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-data.techidaily.com/ed-how-often-should-you-upload-youtube-videos-to-get-more-views/"><u>[Updated] How Often Should You Upload YouTube Videos to Get More Views</u></a></li>
-<li><a href="https://facebook-video-files.techidaily.com/updated-in-2024-free-and-easy-top-8-fb-link-exporters-for-23-online/"><u>[Updated] In 2024, Free and Easy Top 8 FB Link Exporters for '23 Online</u></a></li>
-<li><a href="https://tech-revival.techidaily.com/five-ai-driven-tactics-amplifying-malicious-digital-ventures/"><u>Five AI-Driven Tactics: Amplifying Malicious Digital Ventures</u></a></li>
-<li><a href="https://activate-lock.techidaily.com/how-to-unlock-icloud-activation-lock-and-icloud-account-from-iphone-11-pro-max-by-drfone-ios/"><u>How to Unlock iCloud Activation Lock and iCloud Account From iPhone 11 Pro Max?</u></a></li>
-<li><a href="https://win-solutions.techidaily.com/ultimate-guide-to-solving-common-issues-with-jurassic-world-evolution-crashing-errors/"><u>Ultimate Guide to Solving Common Issues with Jurassic World Evolution Crashing Errors</u></a></li>
-<li><a href="https://ai-topics.techidaily.com/updated-how-to-make-animation-talk-explained-with-easy-steps-for-2024/"><u>Updated How To Make Animation Talk? Explained with Easy Steps for 2024</u></a></li>
-<li><a href="https://ai-topics.techidaily.com/updated-in-2024-what-are-ai-tools/"><u>Updated In 2024, What Are AI Tools?</u></a></li>
-<li><a href="https://ai-topics.techidaily.com/updated-the-recommended-natural-ai-hindi-voice-generator/"><u>Updated The Recommended Natural AI Hindi Voice Generator</u></a></li>
-<li><a href="https://ai-topics.techidaily.com/updated-top-10-ai-talking-avatars-revolutionizing-communication/"><u>Updated Top 10 AI-Talking Avatars Revolutionizing Communication</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-effortless-view-growth-uncovering-the-best-video-tips-and-hacks-for-2024/"><u>[New] Effortless View Growth Uncovering the Best Video Tips and Hacks for 2024</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/new-in-2024-join-the-giggle-roll-and-tearful-talks-on-instagram-memes/"><u>[New] In 2024, Join the Giggle-Roll and Tearful Talks on Instagram Memes</u></a></li>
+<li><a href="https://screen-mirroring-recording.techidaily.com/updated-screencast-strategies-unleashed-powerful-ideas-inside-for-2024/"><u>[Updated] Screencast Strategies Unleashed Powerful Ideas Inside for 2024</u></a></li>
+<li><a href="https://blog-min.techidaily.com/how-to-downgrade-iphone-14-plus-to-an-older-ios-version-drfone-by-drfone-ios-system-repair-ios-system-repair/"><u>How to Downgrade iPhone 14 Plus to an Older iOS Version? | Dr.fone</u></a></li>
+<li><a href="https://ai-topics.techidaily.com/how-to-make-animation-talk-explained-with-easy-steps/"><u>How To Make Animation Talk? Explained with Easy Steps</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/how-to-unlock-samsung-galaxy-a05s-phone-password-without-factory-reset-by-drfone-android/"><u>How to Unlock Samsung Galaxy A05s Phone Password Without Factory Reset?</u></a></li>
+<li><a href="https://apple-account.techidaily.com/in-2024-apple-id-unlock-from-apple-iphone-6s-plus-how-to-fix-it-by-drfone-ios/"><u>In 2024, Apple ID Unlock From Apple iPhone 6s Plus? How to Fix it?</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/in-2024-apple-iphone-13-pro-mirror-to-pc-top-apps-you-must-know-drfone-by-drfone-ios/"><u>In 2024, Apple iPhone 13 Pro Mirror to PC? Top Apps You Must Know | Dr.fone</u></a></li>
+<li><a href="https://ai-topics.techidaily.com/new-2024-approved-what-is-ai-marketing/"><u>New 2024 Approved What Is AI Marketing?</u></a></li>
+<li><a href="https://ai-topics.techidaily.com/new-2024-approved-what-is-an-ai-video-generator/"><u>New 2024 Approved What Is an AI Video Generator?</u></a></li>
+<li><a href="https://ai-topics.techidaily.com/updated-2024-approved-the-best-text-to-speech-online-tools-to-use/"><u>Updated 2024 Approved The Best Text-to-Speech Online Tools To Use</u></a></li>
+<li><a href="https://video-creation-software.techidaily.com/updated-animate-like-a-pro-top-8-software-options-for-mac-and-windows-for-2024/"><u>Updated Animate Like a Pro Top 8 Software Options for Mac and Windows for 2024</u></a></li>
+<li><a href="https://ai-topics.techidaily.com/updated-what-is-an-ai-video-editor-for-2024/"><u>Updated What Is an AI Video Editor for 2024</u></a></li>
+<li><a href="https://ai-topics.techidaily.com/what-is-ai-generated-text/"><u>What Is AI Generated Text?</u></a></li>
+<li><a href="https://ai-topics.techidaily.com/what-is-an-ai-presentation-maker-for-2024/"><u>What Is an AI Presentation Maker for 2024</u></a></li>
 </ul></div>
 
