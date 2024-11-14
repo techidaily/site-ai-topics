@@ -1,7 +1,7 @@
 ---
 title: "Strategic Expansion: China's Plan to Enhance State Supercomputing Power by 30%%, Achieve 300 Exaflops in Half a Decade"
-date: 2024-11-10T08:55:43.332Z
-updated: 2024-11-12T21:44:05.542Z
+date: 2024-11-13T04:29:16.872Z
+updated: 2024-11-14T02:51:41.687Z
 tags:
   - desktop
 categories:
@@ -24,10 +24,10 @@ thumbnail: https://thmb.techidaily.com/a42282b650e186f3549f7d2aa960eb18debb612fb
  LATEST VIDEOS FROM tomshardware Tom's Hardware
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135402/19272" target="_top" id="2135402">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135402" border="0" alt="https://techidaily.com" width="336" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2111994/7443" target="_top" id="2111994">
+  <img src="//a.impactradius-go.com/display-ad/7443-2111994" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135402/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2111994/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Despite being on the Entity List, Inspur continues operations in the U.S
@@ -37,10 +37,10 @@ thumbnail: https://thmb.techidaily.com/a42282b650e186f3549f7d2aa960eb18debb612fb
  The complaint claims that Inspur that inspur continues its operations in the United States under Aivres Systems and Betapex. Inspur allegedly removed its branding from products sold in the U.S. and continues to sell them. For example, Inspur's IR5280M6 server is Aivres's 5280M6 machine, it has the same specification and design, according to HPE's complaint. Meanwhile, Inspur has also worked as a contract maker of servers, according to The Register. Yet, if a U.S. entity plans to work with Inspur (or any other party from the Entity List), it has to get a special license from the U.S. government.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2137393/7443" target="_top" id="2137393">
-  <img src="//a.impactradius-go.com/display-ad/7443-2137393" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1884021/19272" target="_top" id="1884021">
+  <img src="//a.impactradius-go.com/display-ad/19272-1884021" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2137393/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1884021/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Stay On the Cutting Edge: Get the Tom's Hardware Newsletter
@@ -66,21 +66,24 @@ thumbnail: https://thmb.techidaily.com/a42282b650e186f3549f7d2aa960eb18debb612fb
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://article-files.techidaily.com/updated-professional-audio-techniques-in-audacity-for-2024/"><u>[Updated] Professional Audio Techniques in Audacity for 2024</u></a></li>
-<li><a href="https://fox-hovers.techidaily.com/updated-what-does-it-cost-to-boost-a-video-for-2024/"><u>[Updated] What Does It Cost to Boost a Video for 2024</u></a></li>
-<li><a href="https://techno-recovery.techidaily.com/discover-the-superior-android-auto-clicking-tools-for-your-non-rooted-phone/"><u>Discover the Superior Android Auto Clicking Tools for Your Non-RooteD Phone</u></a></li>
-<li><a href="https://instagram-video-recordings.techidaily.com/in-2024-sizing-up-best-practices-for-instagram-videos-in-2eary-2023/"><u>In 2024, Sizing Up Best Practices for Instagram Videos in 2Eary 2023</u></a></li>
-<li><a href="https://review-topics.techidaily.com/m6-pro-5g-video-recovery-recover-deleted-videos-from-m6-pro-5g-by-fonelab-android-recover-video/"><u>M6 Pro 5G Video Recovery - Recover Deleted Videos from M6 Pro 5G</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/mondly-kids-excellence-google-plays-best-list-of-2017/"><u>Mondly Kids Excellence, Google Play’s Best List of 2017</u></a></li>
-<li><a href="https://ai-topics.techidaily.com/new-in-2024-create-talking-cartoon-images-using-top-tools/"><u>New In 2024, Create Talking Cartoon Images Using Top Tools</u></a></li>
-<li><a href="https://ai-topics.techidaily.com/new-in-2024-easy-guide-how-to-make-talking-head-videos/"><u>New In 2024, Easy Guide How To Make Talking Head Videos</u></a></li>
-<li><a href="https://ai-topics.techidaily.com/new-what-is-an-ai-voice-generator-for-2024/"><u>New What Is an AI Voice Generator for 2024</u></a></li>
-<li><a href="https://article-tips.techidaily.com/old-to-new-crafting-a-video-journey-from-classic-photos-for-2024/"><u>Old to New Crafting a Video Journey From Classic Photos for 2024</u></a></li>
-<li><a href="https://review-topics.techidaily.com/possible-solutions-to-restore-deleted-pictures-from-vivo-y200-by-fonelab-android-recover-pictures/"><u>Possible solutions to restore deleted pictures from Vivo Y200.</u></a></li>
-<li><a href="https://fox-within.techidaily.com/techniques-pour-lenregistrement-automatique-des-fichiers-windows-sur-google-drive/"><u>Techniques Pour L'enregistrement Automatique Des Fichiers Windows Sur Google Drive</u></a></li>
-<li><a href="https://ai-topics.techidaily.com/updated-easy-tutorial-how-to-make-a-talking-cartoon-video-step-by-step/"><u>Updated Easy Tutorial How To Make a Talking Cartoon Video Step-by-Step</u></a></li>
-<li><a href="https://ai-topics.techidaily.com/updated-exploring-ai-face-generators/"><u>Updated Exploring AI Face Generators</u></a></li>
-<li><a href="https://ai-topics.techidaily.com/updated-how-to-define-ai-video-for-2024/"><u>Updated How to Define AI Video for 2024</u></a></li>
-<li><a href="https://ai-topics.techidaily.com/updated-what-is-an-ai-avatar-in-2024/"><u>Updated What Is an AI Avatar, In 2024</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/new-express-gratitude-free-endings-and-premium-exclusives-for-2024/"><u>[New] Express Gratitude Free Endings & Premium Exclusives for 2024</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/n-2024-exceptional-7-cameras-elevating-online-educational-vlogs/"><u>[New] In 2024, Exceptional 7 Cameras Elevating Online Educational Vlogs</u></a></li>
+<li><a href="https://article-helps.techidaily.com/new-oceanic-adventures-top-camera-pickups-of-2023-for-2024/"><u>[New] Oceanic Adventures - Top Camera Pickups of 2023 for 2024</u></a></li>
+<li><a href="https://ai-topics.techidaily.com/2024-approved-design-cartoon-images-with-the-best-tools/"><u>2024 Approved Design Cartoon Images With the Best Tools</u></a></li>
+<li><a href="https://win-amazing.techidaily.com/free-download-insignia-ns-pcy5bma2-printer-drivers-compatible-with-windows-11-10-and-7/"><u>Free Download: Insignia NS-PCY5BMA2 Printer Drivers Compatible with Windows 11, 10 & 7</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/guide-to-selecting-the-perfect-4k-camera-lens-for-2024/"><u>Guide to Selecting the Perfect 4K Camera Lens for 2024</u></a></li>
+<li><a href="https://ai-topics.techidaily.com/how-to-make-your-memoji-talk-get-creative-with-your-messaging-for-2024/"><u>How To Make Your Memoji Talk? Get Creative With Your Messaging for 2024</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/in-2024-achieving-soft-sound-effects-in-audacity/"><u>In 2024, Achieving Soft Sound Effects in Audacity</u></a></li>
+<li><a href="https://ai-topics.techidaily.com/in-2024-essential-tools-for-creating-dynamic-talking-avatars/"><u>In 2024, Essential Tools for Creating Dynamic Talking Avatars</u></a></li>
+<li><a href="https://ai-topics.techidaily.com/in-2024-how-to-define-ai-video/"><u>In 2024, How to Define AI Video?</u></a></li>
+<li><a href="https://ai-topics.techidaily.com/new-2024-approved-how-to-create-funny-talking-avatars-using-oddcast-text-to-speech-tech/"><u>New 2024 Approved How to Create Funny Talking Avatars Using Oddcast Text to Speech Tech</u></a></li>
+<li><a href="https://ai-topics.techidaily.com/new-in-2024-what-is-an-ai-text-generator/"><u>New In 2024, What Is an AI Text Generator?</u></a></li>
+<li><a href="https://ai-topics.techidaily.com/new-top-list-best-5-tools-for-creating-talking-avatars/"><u>New Top List Best 5 Tools for Creating Talking Avatars</u></a></li>
+<li><a href="https://tech-recovery.techidaily.com/step-by-step-guide-pairing-your-apple-airpods-with-your-hp-computer/"><u>Step-by-Step Guide: Pairing Your Apple AirPods with Your HP Computer</u></a></li>
+<li><a href="https://discover-comparisons.techidaily.com/the-ultimate-tutorial-for-downloading-nuvid-content-with-ease-and-speed/"><u>The Ultimate Tutorial for Downloading Nuvid Content with Ease and Speed</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/the-ultimate-tutorial-on-how-to-openedit-srt-on-mac/"><u>The Ultimate Tutorial on How to Open/Edit SRT on Mac</u></a></li>
+<li><a href="https://ai-topics.techidaily.com/updated-easy-tutorial-how-to-make-a-talking-cartoon-video-step-by-step-for-2024/"><u>Updated Easy Tutorial How To Make a Talking Cartoon Video Step-by-Step for 2024</u></a></li>
+<li><a href="https://ai-topics.techidaily.com/updated-top-10-talking-photo-online-tools-you-have-to-try-for-2024/"><u>Updated Top 10 Talking Photo Online Tools You Have To Try for 2024</u></a></li>
+<li><a href="https://ai-driven-video-production.techidaily.com/updated-video-editing-on-a-shoestring-best-software-for-2024/"><u>Updated Video Editing on a Shoestring Best Software for 2024</u></a></li>
 </ul></div>
 
