@@ -1,7 +1,7 @@
 ---
 title: Updated 2024 Approved 5 Top Realistic Text to Speech AI Voice Generators You May Like
-date: 2024-10-28T18:26:02.570Z
-updated: 2024-11-04T05:15:29.246Z
+date: 2024-11-10T23:28:09.121Z
+updated: 2024-11-13T05:45:01.370Z
 tags: 
   - ai text to speech
   - text to speech
@@ -385,6 +385,13 @@ Easily convert text into professional spokesperson videos in over 120+ voices & 
 
 [![google-play](https://images.wondershare.com/virbo/images2023/google-play-btn.svg)](https://app.adjust.com/1187btki%5F11xz9mlt) [![app-store](https://images.wondershare.com/virbo/images2023/app-store-btn.svg)](https://app.adjust.com/1187btki%5F11xz9mlt)
 
+<!-- affiliate ads begin -->
+<a href="https://laganoo.pxf.io/c/5597632/1528689/16446" target="_top" id="1528689">
+  <img src="//a.impactradius-go.com/display-ad/16446-1528689" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1528689/16446" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ![article-product-download](https://images.wondershare.com/virbo/images2023/article-product-download.png)
 
 #### Key Features
@@ -421,22 +428,16 @@ Voicemaker is also a reliable **text-to-audio converter** tool. With this, you c
 2. This tool has two AI Engines, which include Standard TTS and Neural TTS. You can select any one of them as per your need.
 3. You can add pauses anywhere in the speech, manage the speed, customize the volume, and also select a voice.
 
-<!-- affiliate ads begin -->
-<span id="1977028">
-					<video width="128" height="480" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1977028.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1977028">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1977028.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1977028%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1977028/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### 3\. Veed.io
 
 Veed.io holds its name higher in the list of **text-to-audio online** tools. Using this innovative tool, you can easily convert text into speech and add it to any video. It also helps you in selecting the language of your choice. Moreover, there are diversified AI Avatar Voices in it, and you can choose the one that fits your needs.![speakatoo text to audio converter](https://images.wondershare.com/virbo/features/text-to-speech/text-to-audio-converter-4.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://review-au.sjv.io/c/5597632/2098704/14409" target="_top" id="2098704">
+  <img src="//a.impactradius-go.com/display-ad/14409-2098704" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://review-au.sjv.io/i/5597632/2098704/14409" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 #### Key Features
 
@@ -584,13 +585,6 @@ Veed.io holds its name higher in the list of **text-to-audio online** tools. Usi
 2. You can add subtitles to any video and translate videos into several languages using its subtitles and transcription feature.
 3. You can also use this tool for trimming, cropping, looping, resizing, and rotating videos. It also lets you record the videos in several ways.
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2123736/7443" target="_top" id="2123736">
-  <img src="//a.impactradius-go.com/display-ad/7443-2123736" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123736/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### 4\. Speakatoo
 
 With Speakatoo, you can turn text into audio in multiple languages. It supports 120+ languages, which is pretty reliable for multilingual users. You can even access 850+ voices in this fantastic tool. There is specialized file storage on which you can save your projects. One of the best things is it can even add human emotions to the audio.
@@ -602,6 +596,13 @@ With Speakatoo, you can turn text into audio in multiple languages. It supports 
 1. It has reliable audio controls such as Rate, Pitch, Volume, and many other things. You can also download the speeches in multiple audio formats such as MP3, WAV, OGG, and more.
 2. The Advanced Effects of this amazing tool can also upgrade your audio functionality. It may include Angry, cheerful, Newscast, Friendly, and more.
 3. This tool can automatically add breathing pauses in audio to make them more realistic. You can also access 700 plus male and female voices in this.
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2094421/7443" target="_top" id="2094421">
+  <img src="//a.impactradius-go.com/display-ad/7443-2094421" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2094421/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### 5\. Speechify
 
@@ -656,13 +657,6 @@ Converting text into audio is easier than you think with ttsMP3\. With this text
 This excellent **text-to-audio app** has high-quality generative voices that are powered by artificial intelligence. You can use it for converting text to speech in the optimized quality. You can also use it for performing neural audio editing without any issues. It also has the potential to clone your voice for free. Moreover, you can also add an infinite number of emotions to make the audio more realistic.
 
 ![resemble ai text to audio converter](https://images.wondershare.com/virbo/features/text-to-speech/text-to-audio-converter-10.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2144275/7443" target="_top" id="2144275">
-  <img src="//a.impactradius-go.com/display-ad/7443-2144275" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144275/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 #### Key Features
 
@@ -727,16 +721,10 @@ This is quite a cost-effective tool through which you can accomplish your task w
 | No Optional Voices | $34.95 |
 
 <!-- affiliate ads begin -->
-<span id="2135471">
-					<video width="864" height="1536" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/2135471.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/18498-2135471">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/2135471.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Funicoeye.pxf.io%2Fc%2F5597632%2F2135471%2F18498'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/2135471/18498" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://appsumo.8odi.net/c/5597632/2049382/7443" target="_top" id="2049382">
+  <img src="//a.impactradius-go.com/display-ad/7443-2049382" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2049382/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Part 4: Simplified Step-by-Step Guide for Using Ivona
@@ -909,19 +897,6 @@ Navigate to the official website of Murf.ai through any web browser. Create your
 
 ![detailed-and-trustworthy-review-of-murf-ai-2.jpg](https://images.wondershare.com/virbo/images2023/tts/detailed-and-trustworthy-review-of-murf-ai-2.jpg)
 
-<!-- affiliate ads begin -->
-<span id="1495277">
-					<video width="1536" height="864" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1495277.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/17189-1495277">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1495277.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:960px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Ffunwhole.sjv.io%2Fc%2F5597632%2F1495277%2F17189'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1495277/17189" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### **Step 2: Enter the Textual Script**
 
 Now, type the textual content in the given space. You can also import the script from your PC. Now, choose the AI voice and language by clicking "Explore AI Voices" from the left menu. From this option, you can explore the variety of AI voices in different age ranges.
@@ -963,6 +938,13 @@ Speakatoo is another text-to-speech converter offering many useful features. It 
 This tool also lets you adjust the rate, pitch, and volume of the AI voice accordingly. You can also add background music to your AI voice to add more engagement. Furthermore, you can add human emotions to your AI voice with advanced voice effects. Hence, you should use Speakatoo to create a customized AI voice within a few clicks.
 
 ![detailed-and-trustworthy-review-of-murf-ai-7.jpg](https://images.wondershare.com/virbo/images2023/tts/detailed-and-trustworthy-review-of-murf-ai-7.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2132162/7443" target="_top" id="2132162">
+  <img src="//a.impactradius-go.com/display-ad/7443-2132162" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2132162/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Conclusion
 
@@ -1214,6 +1196,13 @@ Assigning an exact number to the English accents spoken globally is challenging.
 9. Canadian
 10. South African
 
+<!-- affiliate ads begin -->
+<a href="https://review-au.sjv.io/c/5597632/2098705/14409" target="_top" id="2098705">
+  <img src="//a.impactradius-go.com/display-ad/14409-2098705" border="0" alt="https://techidaily.com" width="250" height="90"/>
+</a>
+<img height="0" width="0" src="https://review-au.sjv.io/i/5597632/2098705/14409" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Part 2: What Are The Reasons Behind Different English Accents
 
 Several factors contribute to the incredible diversity found in the English language. A range of features can influence accents, some of which include the following:
@@ -1269,6 +1258,13 @@ Besides the conventional text-to-speech conversions, PlayHT also offers some oth
 1. PlayHT offers a unique phonetics library to its users. Using this, you can create custom pronunciations for words such as names, acronyms, etc.
 2. With the Voice Cloning feature, you can create high-quality audio outputs and easily capture all accents and dialects.
 3. The tool supports over 800 voices in 130+ languages, including many English accents. This makes it a good tool if you are looking for an **Irish accent voice generator**.
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2144310/7443" target="_top" id="2144310">
+  <img src="//a.impactradius-go.com/display-ad/7443-2144310" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144310/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### 3\. Murf.ai
 
@@ -1387,6 +1383,13 @@ Once you're satisfied with your video, Narakeet offers various options for distr
 
 All in all, **Narakeet** **text to speech** streamlines the process of creating compelling videos by transforming scripts and presentations into dynamic audiovisual content. By following these detailed steps, you can harness the power of Narakeet's features to produce videos that effectively communicate your message and captivate your audience. Whether you're an educator, marketer, or content creator, this amazing app provides a versatile and user-friendly platform to elevate your content creation efforts.
 
+<!-- affiliate ads begin -->
+<a href="https://bluettiit.sjv.io/c/5597632/2148129/17093" target="_top" id="2148129">
+  <img src="//a.impactradius-go.com/display-ad/17093-2148129" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://bluettiit.sjv.io/i/5597632/2148129/17093" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Part 3: Bonus Tip: A Best Text to Speech Online AI Tool You May Need
 
 You have just learned how to use the **Narakeet text to speech** app, which can turn your text into videos. This is a handy feature that can help you with many tasks. However, you might wonder if there is a better way to convert text to speech, one that can offer you more options and flexibility. Well, there is, and it is called Virbo, one of the best text to speech apps for all your tasks.
@@ -1452,13 +1455,6 @@ Narakeet is a powerful TTS platform designed to transform written content into e
 
 **Narakeet** **text to speech free** is a convenient tool for creating narrated videos with TTS. It can be useful for making educational videos, tutorials, presentations, explainer videos, marketing videos and more.
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1880940/19272" target="_top" id="1880940">
-  <img src="//a.impactradius-go.com/display-ad/19272-1880940" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1880940/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## Part 2: How Does Narakeet Work?
 
 Creating captivating videos with **Narakeet** **text to speech** is a seamless process that allows you to transform your written script and presentation slides into an engaging audiovisual experience. Here's a detailed breakdown of each step.
@@ -1474,13 +1470,6 @@ To start the process, you'll need a script that outlines the content of your vid
 Narakeet offers an impressive array of over 600 voices in 90 **Narakeet** **languages** and accents. After preparing your script, you can select a voice that best matches the tone and theme of your content. The platform allows you to preview the chosen voice, giving you a glimpse of how your narration will sound. Furthermore, you can fine-tune the voice's pitch, speed, volume, and tone to create a customized auditory experience that resonates with your audience.
 
 ![narakeet-text-to-speech-2.jpg](https://images.wondershare.com/virbo/features/text-to-speech/narakeet-text-to-speech-2.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134490/18498" target="_top" id="2134490">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134490" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134490/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### Step 3
 
@@ -1499,13 +1488,6 @@ Narakeet's online editor provides a range of tools to refine your video's visual
 Once you're satisfied with your video, Narakeet offers various options for distribution. You can download your video as an MP4 file, suitable for sharing on social media platforms, websites, or other mediums. Alternatively, Narakeet provides direct integration with platforms like YouTube and Vimeo, allowing you to share your content seamlessly. Furthermore, you can export your video as an audio file or a subtitle file, broadening the ways you can engage your audience.
 
 ![narakeet-text-to-speech-5.jpg](https://images.wondershare.com/virbo/features/text-to-speech/narakeet-text-to-speech-5.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1975836/19272" target="_top" id="1975836">
-  <img src="//a.impactradius-go.com/display-ad/19272-1975836" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1975836/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 All in all, **Narakeet** **text to speech** streamlines the process of creating compelling videos by transforming scripts and presentations into dynamic audiovisual content. By following these detailed steps, you can harness the power of Narakeet's features to produce videos that effectively communicate your message and captivate your audience. Whether you're an educator, marketer, or content creator, this amazing app provides a versatile and user-friendly platform to elevate your content creation efforts.
 
@@ -1551,24 +1533,18 @@ And for those seeking alternative tools, Virbo provides an excellent option to f
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-hovers.techidaily.com/new-in-2024-swiftly-upload-to-twitter-premium-video-convertors-guide/"><u>[New] In 2024, Swiftly Upload to Twitter Premium Video Convertors Guide</u></a></li>
-<li><a href="https://desktop-recording.techidaily.com/updated-in-2024-optimal-pc-mac-screen-recording-software/"><u>[Updated] In 2024, Optimal PC-Mac Screen Recording Software</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/updated-superior-cams-for-animated-storytelling-for-2024/"><u>[Updated] Superior Cams for Animated Storytelling for 2024</u></a></li>
-<li><a href="https://extra-tips.techidaily.com/2024-approved-avoidance-tactics-no-more-recommended-podcasts-on-spotify/"><u>2024 Approved Avoidance Tactics No More Recommended Podcasts on Spotify</u></a></li>
-<li><a href="https://screen-recording.techidaily.com/2024-approved-creative-uses-for-home-webcams/"><u>2024 Approved Creative Uses for Home Webcams</u></a></li>
-<li><a href="https://win11.techidaily.com/7-exciting-additions-on-the-horizon-for-windows-11s-moment-22h2/"><u>7 Exciting Additions on the Horizon for Windows 11'S Moment #22H2</u></a></li>
-<li><a href="https://some-knowledge.techidaily.com/free-video-openings-that-stand-out-today-for-2024/"><u>Free Video Openings That Stand Out Today for 2024</u></a></li>
-<li><a href="https://easy-unlock-android.techidaily.com/how-to-fix-oem-unlock-missing-on-poco-c50-by-drfone-android/"><u>How To Fix OEM Unlock Missing on Poco C50?</u></a></li>
-<li><a href="https://apple-account.techidaily.com/how-to-sign-out-of-apple-id-from-apple-iphone-14-pro-without-password-by-drfone-ios/"><u>How to Sign Out of Apple ID From Apple iPhone 14 Pro without Password?</u></a></li>
-<li><a href="https://extra-resources.techidaily.com/in-2024-advanced-cropping-skills-for-image-clarity/"><u>In 2024, Advanced Cropping Skills for Image Clarity</u></a></li>
-<li><a href="https://ai-topics.techidaily.com/in-2024-what-is-ai-generated-text/"><u>In 2024, What Is AI Generated Text?</u></a></li>
-<li><a href="https://ai-topics.techidaily.com/new-2024-approved-what-is-ai-text-to-video/"><u>New 2024 Approved What Is AI Text to Video?</u></a></li>
-<li><a href="https://ai-topics.techidaily.com/new-2024-approved-what-is-an-ai-text-generator/"><u>New 2024 Approved What Is an AI Text Generator?</u></a></li>
-<li><a href="https://ai-topics.techidaily.com/new-2024-approved-what-is-an-ai-video-maker/"><u>New 2024 Approved What Is an AI Video Maker?</u></a></li>
-<li><a href="https://ai-topics.techidaily.com/new-best-text-to-audio-converters-of-all-times/"><u>New Best Text-to-Audio Converters of All Times</u></a></li>
-<li><a href="https://ai-topics.techidaily.com/new-how-to-define-ai-video-for-2024/"><u>New How to Define AI Video for 2024</u></a></li>
-<li><a href="https://ai-topics.techidaily.com/new-in-2024-guide-to-generating-speech-in-different-languages-with-the-best-tools/"><u>New In 2024, Guide to Generating Speech in Different Languages With the Best Tools</u></a></li>
-<li><a href="https://ai-topics.techidaily.com/new-what-is-an-ai-video-generator-in-2024/"><u>New What Is an AI Video Generator, In 2024</u></a></li>
-<li><a href="https://ai-topics.techidaily.com/updated-2024-approved-what-is-ai-pixel-art-generator/"><u>Updated 2024 Approved What Is AI Pixel Art Generator?</u></a></li>
+<li><a href="https://fox-http.techidaily.com/new-2024-approved-boost-your-youtube-video-to-million-views-quickly/"><u>[New] 2024 Approved Boost Your YouTube Video to Million Views Quickly</u></a></li>
+<li><a href="https://tiktok-videos.techidaily.com/new-2024-approved-how-to-speed-up-video-on-tiktok/"><u>[New] 2024 Approved How to Speed Up Video on TikTok?</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/new-2024-approved-twitters-most-popular-amazon-originals-in-2e23/"><u>[New] 2024 Approved Twitter's Most Popular Amazon Originals in 2E'23</u></a></li>
+<li><a href="https://youtube-stream.techidaily.com/new-from-vision-to-visuals-craft-your-story-with-youtube-editor/"><u>[New] From Vision to Visuals Craft Your Story with YouTube Editor</u></a></li>
+<li><a href="https://vimeo-videos.techidaily.com/updated-2024-approved-splitting-content-introducing-chapters-in-vimeo/"><u>[Updated] 2024 Approved Splitting Content Introducing Chapters in Vimeo</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/2024-approved-camera-mended-problems-resolved-with-obs/"><u>2024 Approved Camera Mended, Problems Resolved with OBS</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/advanced-capture-strategies-for-roblox-games-mac-edition/"><u>Advanced Capture Strategies for Roblox Games (Mac Edition)</u></a></li>
+<li><a href="https://android-frp.techidaily.com/is-gsm-flasher-adb-legit-full-review-to-bypass-your-realme-gt-3-phone-frp-lock-by-drfone-android/"><u>Is GSM Flasher ADB Legit? Full Review To Bypass Your Realme GT 3 Phone FRP Lock</u></a></li>
+<li><a href="https://ai-topics.techidaily.com/new-2024-approved-narakeet-review-text-to-speech-convenient-voice-maker/"><u>New 2024 Approved Narakeet Review Text to Speech Convenient Voice Maker</u></a></li>
+<li><a href="https://ai-topics.techidaily.com/new-what-is-an-ai-voice-generator-in-2024/"><u>New What Is an AI Voice Generator, In 2024</u></a></li>
+<li><a href="https://tech-revival.techidaily.com/top-20-essential-conversations-with-chatgpt-uncovered-gems-on-github/"><u>Top 20 Essential Conversations with ChatGPT: Uncovered Gems on GitHub</u></a></li>
+<li><a href="https://ai-topics.techidaily.com/updated-create-talking-cartoon-images-using-top-tools/"><u>Updated Create Talking Cartoon Images Using Top Tools</u></a></li>
+<li><a href="https://ai-topics.techidaily.com/updated-what-is-an-ai-video-generator-in-2024/"><u>Updated What Is an AI Video Generator, In 2024</u></a></li>
 </ul></div>
 
