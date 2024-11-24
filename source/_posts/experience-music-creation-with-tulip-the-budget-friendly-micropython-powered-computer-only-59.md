@@ -1,7 +1,7 @@
 ---
 title: "Experience Music Creation with Tulip: The Budget-Friendly MicroPython-Powered Computer - Only $59"
-date: 2024-11-08T21:07:25.597Z
-updated: 2024-11-13T18:40:06.299Z
+date: 2024-11-22T18:03:30.503Z
+updated: 2024-11-24T00:25:23.710Z
 tags:
   - desktop
 categories:
@@ -35,6 +35,10 @@ Over on Chinese videosharing platform Bilibili, user 苏打baka uploaded a lengt
 
  So, what happened? Did the static buildup short out the PC or something? Fortunately, nothing so mundane. Instead, the fan PC was tested at increasingly higher speeds until the[weighty cooler](https://www.tomshardware.com/news/noctua-fanless-cooler-enters-production) was violently flung from the PC in the last moments of the original video. No wonder Sodabaka hid behind a riot shield for much of the video demo.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/43goO8X0iX0?si=48Cqf6td2q_6T6h3&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Stay On the Cutting Edge: Get the Tom's Hardware Newsletter
 
  Get Tom's Hardware's best news and in-depth reviews, straight to your inbox.
@@ -58,31 +62,21 @@ Over on Chinese videosharing platform Bilibili, user 苏打baka uploaded a lengt
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://article-knowledge.techidaily.com/updated-in-2024-fuse-sounds-with-slides-a-guide-to-mp3-integration/"><u>[Updated] In 2024, Fuse Sounds with Slides A Guide to MP3 Integration</u></a></li>
-<li><a href="https://extra-skills.techidaily.com/2024-approved-making-every-gift-discovery-special/"><u>2024 Approved Making Every Gift Discovery Special</u></a></li>
-<li><a href="https://some-guidance.techidaily.com/2024-approved-techniques-of-composing-persuasive-content-in-vlogging/"><u>2024 Approved Techniques of Composing Persuasive Content in Vlogging</u></a></li>
-<li><a href="https://techno-recovery.techidaily.com/essential-advice-on-securing-the-best-deal-for-your-next-vintage-ipad/"><u>Essential Advice on Securing the Best Deal for Your Next Vintage iPad</u></a></li>
-<li><a href="https://article-files.techidaily.com/in-2024-seamless-volume-reduction-for-apple-and-microsoft-systems/"><u>In 2024, Seamless Volume Reduction for Apple and Microsoft Systems</u></a></li>
-<li><a href="https://ai-topics.techidaily.com/in-2024-what-is-an-ai-presentation-maker/"><u>In 2024, What Is an AI Presentation Maker?</u></a></li>
-<li><a href="https://ai-topics.techidaily.com/in-depth-review-of-ivona-text-to-speech-converter/"><u>In-Depth Review of Ivona Text to Speech Converter</u></a></li>
-<li><a href="https://techno-recovery.techidaily.com/is-there-an-active-roblox-downtime-or-could-the-problem-be-on-your-end/"><u>Is There an Active Roblox Downtime? Or Could the Problem Be on Your End?</u></a></li>
-<li><a href="https://fix-guide.techidaily.com/strategies-for-apps-that-wont-download-from-play-store-on-oneplus-nord-n30-5g-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Strategies for Apps That Wont Download From Play Store On OnePlus Nord N30 5G | Dr.fone</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210080380-9781948626224-the-shamans-mind/"><u>The Shaman's Mind | Free Book</u></a></li>
-<li><a href="https://win-dash.techidaily.com/troubleshooting-and-resolving-samsung-ssd-drive-conflicts-within-the-windows-environment/"><u>Troubleshooting and Resolving Samsung SSD Drive Conflicts Within the Windows Environment</u></a></li>
-<li><a href="https://facebook-clips.techidaily.com/unlock-fb-potential-link-your-youtube-video/"><u>Unlock FB Potential Link Your YouTube Video</u></a></li>
-<li><a href="https://ai-topics.techidaily.com/updated-best-text-to-audio-converters-of-all-times/"><u>Updated Best Text-to-Audio Converters of All Times</u></a></li>
-<li><a href="https://ai-topics.techidaily.com/updated-in-2024-easy-steps-to-make-a-talking-avatar-with-ai-from-any-photos/"><u>Updated In 2024, Easy Steps to Make a Talking Avatar with AI From Any Photos</u></a></li>
-<li><a href="https://ai-topics.techidaily.com/updated-in-2024-get-closer-to-the-artistic-marvels-of-ai-portrait-generator/"><u>Updated In 2024, Get Closer to the Artistic Marvels of AI Portrait Generator</u></a></li>
-<li><a href="https://ai-topics.techidaily.com/updated-in-2024-what-is-ai-text-to-video/"><u>Updated In 2024, What Is AI Text to Video?</u></a></li>
-<li><a href="https://ai-topics.techidaily.com/updated-what-is-an-ai-tool-in-2024/"><u>Updated What Is an AI Tool, In 2024</u></a></li>
-<li><a href="https://ai-topics.techidaily.com/updated-what-is-an-ai-video-editor-in-2024/"><u>Updated What Is an AI Video Editor, In 2024</u></a></li>
-<li><a href="https://ai-topics.techidaily.com/what-is-an-ai-video-editor/"><u>What Is an AI Video Editor?</u></a></li>
+<li><a href="https://screen-sharing-recording.techidaily.com/new-undead-uncovered-ranking-the-best-zombie-game-clusters-for-2024/"><u>[New] Undead Uncovered Ranking the Best Zombie Game Clusters for 2024</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/updated-2024-approved-tactical-techniques-for-stunning-instagram-puzzle-displays/"><u>[Updated] 2024 Approved Tactical Techniques for Stunning Instagram Puzzle Displays</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/updated-free-techniques-for-turning-youtube-watching-into-a-screenshot/"><u>[Updated] Free Techniques for Turning YouTube Watching Into a Screenshot</u></a></li>
+<li><a href="https://ai-topics.techidaily.com/2024-approved-exploring-the-best-text-to-speech-online-tools-to-use/"><u>2024 Approved Exploring The Best Text-to-Speech Online Tools To Use</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/ableton-live-mastering-volume-dampening/"><u>Ableton Live Mastering Volume Dampening</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/comprehensive-evaluation-of-the-apple-ipad-air-2019-unmatched-performance-in-media-consumption/"><u>Comprehensive Evaluation of the Apple iPad Air (2019): Unmatched Performance in Media Consumption</u></a></li>
+<li><a href="https://win-solutions.techidaily.com/expert-advice-resolving-fallout-3-freezing-issues-in-windows-11-environment/"><u>Expert Advice: Resolving Fallout 3 Freezing Issues in Windows 11 Environment</u></a></li>
+<li><a href="https://sound-issues.techidaily.com/1723016218219-how-to-fix-discord-audio-cutting-out-2024-ultimate-guide/"><u>How to Fix Discord Audio Cutting Out – 2024 Ultimate Guide</u></a></li>
+<li><a href="https://ai-topics.techidaily.com/in-2024-what-is-an-ai-editor/"><u>In 2024, What Is an AI Editor?</u></a></li>
+<li><a href="https://ai-topics.techidaily.com/new-in-2024-what-is-ai-marketing/"><u>New In 2024, What Is AI Marketing?</u></a></li>
+<li><a href="https://ai-topics.techidaily.com/new-in-depth-review-of-ivona-text-to-speech-by-nextup-technologies/"><u>New In-Depth Review of Ivona Text to Speech by NextUp Technologies</u></a></li>
+<li><a href="https://ai-topics.techidaily.com/top-6-celebrity-text-to-speech-ai-voice-generators-you-may-like-for-2024/"><u>Top 6 Celebrity Text to Speech AI Voice Generators You May Like for 2024</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/ultimate-battle-of-giants-samsung-galaxy-s23-ultra-versus-s21-ultra-reviewed/"><u>Ultimate Battle of Giants: Samsung Galaxy S23 Ultra Versus S21 Ultra Reviewed!</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/unlocking-communication-the-worlds-hardest-languages-decoded/"><u>Unlocking Communication: The World’s Hardest Languages Decoded</u></a></li>
+<li><a href="https://ai-topics.techidaily.com/updated-in-2024-the-most-efficient-tools-to-convert-text-to-mp3-with-the-best-natural-voices/"><u>Updated In 2024, The Most Efficient Tools to Convert Text to MP3 With the Best Natural Voices</u></a></li>
+<li><a href="https://ai-topics.techidaily.com/what-is-ai-advertising/"><u>What Is AI Advertising?</u></a></li>
 </ul></div>
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2123734/7443" target="_top" id="2123734">
-  <img src="//a.impactradius-go.com/display-ad/7443-2123734" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123734/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 

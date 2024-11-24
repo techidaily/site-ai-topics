@@ -1,7 +1,7 @@
 ---
 title: Exploring Computer Components with Tom's Hardware Insights
-date: 2024-11-09T01:40:39.880Z
-updated: 2024-11-13T23:41:39.597Z
+date: 2024-11-17T18:28:28.776Z
+updated: 2024-11-23T17:19:13.368Z
 tags:
   - desktop
 categories:
@@ -35,6 +35,10 @@ Lenovo has launched a new series of gaming desktops powered by laptop CPUs. PCs 
 
  Lastly, the new Legion systems come with a standard 32GB DDR5-5600 dual-channel RAM and 1TB[PCIe Gen4 storage](https://www.tomshardware.com/reviews/best-ssds,3891.html) . Again, upgrades shouldn’t be a problem in the future with SODIMMs presumably used for RAM, and two M.2 slots and two SATA ports available for storage.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/465CTOm8om0?si=63RxowNMCFA4fPUa&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Stay On the Cutting Edge: Get the Tom's Hardware Newsletter
 
  Get Tom's Hardware's best news and in-depth reviews, straight to your inbox.
@@ -62,25 +66,21 @@ Lenovo has launched a new series of gaming desktops powered by laptop CPUs. PCs 
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-links.techidaily.com/new-in-2024-visual-consistency-through-masterful-use-of-luts-in-ae/"><u>[New] In 2024, Visual Consistency Through Masterful Use of LUTs in AE</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/ed-harnessing-the-power-of-short-videos-for-maximum-income-for-2024/"><u>[Updated] Harnessing the Power of Short Videos for Maximum Income for 2024</u></a></li>
-<li><a href="https://ai-topics.techidaily.com/2024-approved-breakthrough-how-to-make-a-picture-speak/"><u>2024 Approved Breakthrough How to Make A Picture Speak</u></a></li>
-<li><a href="https://win-web.techidaily.com/comment-recuperer-rapidement-windows-11-a-laide-dun-outil-de-restauration-par-cle-usb/"><u>Comment Récupérer Rapidement Windows 11 À L'aide D'un Outil De Restauration Par Clé USB</u></a></li>
-<li><a href="https://review-topics.techidaily.com/in-2024-complete-tutorial-to-use-gps-joystick-to-fake-gps-location-on-oppo-reno-8t-5g-drfone-by-drfone-virtual-android/"><u>In 2024, Complete Tutorial to Use GPS Joystick to Fake GPS Location On Oppo Reno 8T 5G | Dr.fone</u></a></li>
-<li><a href="https://instagram-video-recordings.techidaily.com/in-2024-the-future-is-now-harnessing-instagrams-newest-filter-features/"><u>In 2024, The Future Is Now Harnessing Instagram's Newest Filter Features</u></a></li>
-<li><a href="https://ai-topics.techidaily.com/new-design-cartoon-images-with-the-best-tools-for-2024/"><u>New Design Cartoon Images With the Best Tools for 2024</u></a></li>
-<li><a href="https://tech-recovery.techidaily.com/revealing-hidden-files-on-macos-using-the-terminal-command-line/"><u>Revealing Hidden Files on macOS Using the Terminal Command Line</u></a></li>
-<li><a href="https://discover-brilliant.techidaily.com/scarica-conversione-wma-a-flv-ingratis-con-lonline-di-moveavi/"><u>Scarica Conversione WMA a FLV Ingratis Con L'Online Di MoveAVI</u></a></li>
-<li><a href="https://win-blog.techidaily.com/step-by-step-solution-for-unresponsive-pathfinder-game-keyboard-fixes/"><u>Step-by-Step Solution for Unresponsive Pathfinder Game Keyboard Fixes</u></a></li>
-<li><a href="https://ai-topics.techidaily.com/updated-create-talking-cartoon-images-using-top-tools-for-2024/"><u>Updated Create Talking Cartoon Images Using Top Tools for 2024</u></a></li>
-<li><a href="https://ai-topics.techidaily.com/updated-demystifying-ai-game-generators-for-2024/"><u>Updated Demystifying AI Game Generators for 2024</u></a></li>
-<li><a href="https://ai-topics.techidaily.com/updated-how-to-make-a-talking-ai-avatar-from-photos-easy-guide-for-2024/"><u>Updated How to Make a Talking AI Avatar From Photos Easy Guide for 2024</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/new-leveraging-screencastifys-advanced-features-for-2024/"><u>[New] Leveraging Screencastify's Advanced Features for 2024</u></a></li>
+<li><a href="https://some-skills.techidaily.com/new-strategies-for-acquiring-flawless-photos-on-the-internet/"><u>[New] Strategies for Acquiring Flawless Photos on the Internet</u></a></li>
+<li><a href="https://network-issues.techidaily.com/resolved-age-of-empires-ii-launch-pc-compatibility-woes/"><u>[RESOLVED] Age of Empires II Launch - PC Compatibility Woes</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ed-2024-approved-dominating-search-results-essential-youtube-seo-tricks/"><u>[Updated] 2024 Approved Dominating Search Results Essential YouTube SEO Tricks</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/2024-approved-enhancing-memories-date-insertion-techniques-for-photos/"><u>2024 Approved Enhancing Memories Date Insertion Techniques for Photos</u></a></li>
+<li><a href="https://ai-topics.techidaily.com/2024-approved-in-depth-review-of-ivona-text-to-speech-converter/"><u>2024 Approved In-Depth Review of Ivona Text to Speech Converter</u></a></li>
+<li><a href="https://ai-topics.techidaily.com/2024-approved-narakeet-review-text-to-speech-convenient-voice-maker/"><u>2024 Approved Narakeet Review Text to Speech Convenient Voice Maker</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210133188-9781644112830-360-degrees-of-your-star-destiny/"><u>360 Degrees of Your Star Destiny | Free Book</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/fun-meets-functionality-the-ddpai-mini3-dashcam-reviewed/"><u>Fun Meets Functionality: The DDPai Mini3 Dashcam Reviewed</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/in-2024-easily-unlock-your-lava-yuva-3-device-sim-by-drfone-android/"><u>In 2024, Easily Unlock Your Lava Yuva 3 Device SIM</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/24-writers-guide-embedding-images-in-articles-without-spending/"><u>In 2024, Writers' Guide Embedding Images in Articles Without Spending</u></a></li>
+<li><a href="https://ai-topics.techidaily.com/new-2024-approved-in-depth-review-of-ivona-text-to-speech-by-nextup-technologies/"><u>New 2024 Approved In-Depth Review of Ivona Text to Speech by NextUp Technologies</u></a></li>
+<li><a href="https://ai-topics.techidaily.com/new-easy-steps-to-create-talking-memoji-on-iphone-free-for-2024/"><u>New Easy Steps To Create Talking Memoji on iPhone Free for 2024</u></a></li>
+<li><a href="https://ai-topics.techidaily.com/new-in-2024-best-text-to-audio-converters-of-all-times/"><u>New In 2024, Best Text-to-Audio Converters of All Times</u></a></li>
+<li><a href="https://ai-topics.techidaily.com/updated-easy-tutorial-how-to-record-and-send-talking-emoji-for-iphone/"><u>Updated Easy Tutorial How to Record and Send Talking Emoji for iPhone</u></a></li>
+<li><a href="https://ai-topics.techidaily.com/updated-what-is-talking-avatar-for-2024/"><u>Updated What Is Talking Avatar for 2024</u></a></li>
 </ul></div>
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2068440/7443" target="_top" id="2068440">
-  <img src="//a.impactradius-go.com/display-ad/7443-2068440" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068440/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 

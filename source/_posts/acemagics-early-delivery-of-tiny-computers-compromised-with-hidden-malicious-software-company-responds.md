@@ -1,7 +1,7 @@
 ---
 title: AceMagic's Early Delivery of Tiny Computers Compromised with Hidden Malicious Software - Company Responds
-date: 2024-11-11T21:16:12.901Z
-updated: 2024-11-14T01:55:21.909Z
+date: 2024-11-19T19:52:27.846Z
+updated: 2024-11-23T21:28:24.374Z
 tags:
   - desktop
 categories:
@@ -24,6 +24,10 @@ Just under four months after the initial[Ayaneo AM01 Mini PC unveiling](https://
  Pricing-wise, the Ayaneo AM01 is best purchased during the Early Bird window, which is a solid $30 cheaper. Considering the specs and size of the device, the price point is pretty tolerable for what it is, though the best bang for your buck will be found in devices like the LCD[Steam Deck](https://www.tomshardware.com/reviews/steam-deck-valve-gaming-handheld) , used PCs, etc.
 
  If you hope to get your hands on the Ayaneo AM01 PC as soon as possible, head to their Indiegogo page to buy the device through crowdfunding. And as always, while we acknowledge Ayaneo's excellent track record in crowdfunded devices, you can't know what to expect until people get their hands on it.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/YB7Ou4-iKVM?si=7Fq8iUwI8voccMLx&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Stay On the Cutting Edge: Get the Tom's Hardware Newsletter
 
@@ -48,29 +52,17 @@ Just under four months after the initial[Ayaneo AM01 Mini PC unveiling](https://
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-boxes.techidaily.com/new-2024-approved-top-10-intro-maker-for-panzoid/"><u>[New] 2024 Approved Top 10 Intro Maker for Panzoid</u></a></li>
-<li><a href="https://fox-hovers.techidaily.com/new-in-2024-introduce-dynamic-blurring-to-pics-in-ps/"><u>[New] In 2024, Introduce Dynamic Blurring to Pics in PS</u></a></li>
-<li><a href="https://extra-support.techidaily.com/new-making-the-most-of-virtual-reality-space/"><u>[New] Making the Most of Virtual Reality Space</u></a></li>
-<li><a href="https://extra-guidance.techidaily.com/new-premium-psd-free-3d-text-treasure-hunt/"><u>[New] Premium PSD Free 3D Text Treasure Hunt</u></a></li>
-<li><a href="https://vp-tips.techidaily.com/updated-in-2024-how-much-video-can-64gb128gb-hold/"><u>[Updated] In 2024, How Much Video Can 64GB/128GB Hold?</u></a></li>
-<li><a href="https://technical-tips.techidaily.com/dealing-with-missing-or-not-found-d3dx925dll-files-expert-tips-and-tricks/"><u>Dealing with Missing or Not Found d3dx9_25.dll Files: Expert Tips and Tricks</u></a></li>
-<li><a href="https://fox-helps.techidaily.com/dial-in-on-quality-a-step-by-step-zoom-setup-guide/"><u>Dial in on Quality A Step-by-Step Zoom Setup Guide</u></a></li>
-<li><a href="https://screen-mirroring-recording.techidaily.com/fast-fixes-streamlining-your-gotomeeting-record-keeping-for-2024/"><u>Fast Fixes Streamlining Your GoToMeeting Record Keeping for 2024</u></a></li>
-<li><a href="https://blog-min.techidaily.com/how-to-repair-a-damaged-video-file-of-motorola-moto-g84-5g-by-stellar-video-repair-mobile-video-repair/"><u>How to Repair a Damaged video file of Motorola Moto G84 5G?</u></a></li>
-<li><a href="https://ai-topics.techidaily.com/in-2024-what-is-an-ai-tool/"><u>In 2024, What Is an AI Tool?</u></a></li>
-<li><a href="https://ai-topics.techidaily.com/new-top-list-best-5-tools-for-creating-talking-avatars-for-2024/"><u>New Top List Best 5 Tools for Creating Talking Avatars for 2024</u></a></li>
-<li><a href="https://ai-topics.techidaily.com/updated-2024-approved-a-detailed-review-of-murfai-ai-text-to-speech-tool/"><u>Updated 2024 Approved A Detailed Review of Murf.ai AI Text-to-Speech Tool</u></a></li>
-<li><a href="https://ai-topics.techidaily.com/updated-2024-approved-power-of-ai-thumbnail-generators/"><u>Updated 2024 Approved Power of AI Thumbnail Generators</u></a></li>
-<li><a href="https://ai-topics.techidaily.com/updated-in-2024-what-is-ai-pixel-art-generator/"><u>Updated In 2024, What Is AI Pixel Art Generator?</u></a></li>
-<li><a href="https://ai-topics.techidaily.com/waht-is-ai-pixel-art-generator/"><u>Waht Is AI Pixel Art Generator?</u></a></li>
-<li><a href="https://ai-topics.techidaily.com/what-is-ai-pixel-art-generator/"><u>What Is AI Pixel Art Generator?</u></a></li>
-<li><a href="https://ai-topics.techidaily.com/what-is-an-ai-artist/"><u>What Is an AI Artist?</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/new-top-10-strategies-for-accessing-nfl-games-online/"><u>[New] Top 10 Strategies for Accessing NFL Games Online</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ed-in-2024-boost-your-earnings-on-youtube-shorts-a-guide/"><u>[Updated] In 2024, Boost Your Earnings on YouTube Shorts A Guide</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/updated-zoom-brilliance-a-blueprint-for-immaculate-edges-for-2024/"><u>[Updated] Zoom Brilliance A Blueprint for Immaculate Edges for 2024</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/werful-freegame-hashtags-for-dominating-youtube-for-2024/"><u>30 Powerful FreeGame Hashtags for Dominating YouTube for 2024</u></a></li>
+<li><a href="https://tech-haven.techidaily.com/chatgpt-on-mobile-unveiling-six-superiorities-of-the-ios-app-compared-to-its-web-counterpart/"><u>ChatGPT on Mobile: Unveiling Six Superiorities of the iOS App Compared to Its Web Counterpart</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/in-2024-how-to-transfer-photos-from-vivo-y100t-to-samsung-galaxy-s21-ultra-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, How to Transfer Photos From Vivo Y100t to Samsung Galaxy S21 Ultra | Dr.fone</u></a></li>
+<li><a href="https://ai-topics.techidaily.com/updated-a-detailed-guide-to-making-your-pictures-speak/"><u>Updated A Detailed Guide to Making Your Pictures Speak</u></a></li>
+<li><a href="https://ai-topics.techidaily.com/updated-in-2024-easy-guide-how-to-make-talking-head-videos/"><u>Updated In 2024, Easy Guide How To Make Talking Head Videos</u></a></li>
+<li><a href="https://ai-topics.techidaily.com/what-is-an-ai-art-generator/"><u>What Is an AI Art Generator?</u></a></li>
+<li><a href="https://ai-topics.techidaily.com/what-is-an-ai-tool/"><u>What Is an AI Tool?</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/what-pokemon-evolve-with-a-dawn-stone-for-asus-rog-phone-7-ultimate-drfone-by-drfone-virtual-android/"><u>What Pokémon Evolve with A Dawn Stone For Asus ROG Phone 7 Ultimate? | Dr.fone</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210800378-9781739347413-yantra-an-encyclopedia-volume-2/"><u>Yantra - An Encyclopedia - Volume 2 | Free Book</u></a></li>
 </ul></div>
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2094476/7443" target="_top" id="2094476">
-  <img src="//a.impactradius-go.com/display-ad/7443-2094476" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2094476/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 

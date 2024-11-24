@@ -1,7 +1,7 @@
 ---
 title: 2024 Approved Easy Tutorial How To Make a Talking Cartoon Video Step-by-Step
-date: 2024-11-10T00:46:15.577Z
-updated: 2024-11-13T20:30:00.777Z
+date: 2024-11-22T20:06:47.781Z
+updated: 2024-11-23T16:26:03.478Z
 tags: 
   - ai photos
   - talking photos
@@ -47,6 +47,10 @@ Browse through the available actions to change the character's movements or use 
 
 For further visual guidance, you can also refer to their video tutorials. Once you’ve completed your animated character, let’s proceed to **how to make animation talk**.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/jjGL9wFdlbo?si=Vb1JgZqRXNc03UGG&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Part 2\. How To Make The Animation Talks
 
 Now, we are moving to **how to make animated characters talk**. But before diving in, make sure you have your necessary script or audio recording ready. Then, follow these steps onhow to create a talking animation.
@@ -70,19 +74,6 @@ When trying **how to create talking animation**, features like Auto-enhance can 
 With the voice added to your animated character, it's time to preview the video to ensure everything is in order. To do so, click the play button to initiate the preview. Once satisfied, proceed to download the video by clicking "Publish" > "Download Video" and then "Download" to obtain your talking animated character video.
 
 ![Download the talking cartoon video](https://images.wondershare.com/virbo/article/2024/02/how-to-make-animation-talk-5.jpg)
-
-<!-- affiliate ads begin -->
-<span id="1983552">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1983552.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1983552">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983552.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983552%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983552/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Part 3\. Best Direct Way: How to Make Anime Character Talks from A Photo
 
@@ -158,19 +149,6 @@ Select images where the anime character is facing forward and their face is clea
 
 ![Making animated characters talk](https://images.wondershare.com/virbo/article/2024/02/how-to-make-animation-talk-10.jpg)
 
-<!-- affiliate ads begin -->
-<span id="1983549">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1983549.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1983549">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983549.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983549%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983549/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## Conclusion
 
 **How to create talking animation** involves a multi-step process to bring life and personality to your animation. It involves synchronizing the movements of a character's lips and facial expressions with the spoken words to create the illusion of speech.
@@ -208,13 +186,6 @@ Since the template comes with a pre-existing character, you can either use it as
 Browse through the available actions to change the character's movements or use the search function to find specific actions. Additionally, you can also explore the Expressions tab to modify the character's facial expressions, skin tone, hair color, eye color, and attire.
 
 For further visual guidance, you can also refer to their video tutorials. Once you’ve completed your animated character, let’s proceed to **how to make animation talk**.
-
-<!-- affiliate ads begin -->
-<a href="https://25home.pxf.io/c/5597632/2148640/16836" target="_top" id="2148640">
-  <img src="//a.impactradius-go.com/display-ad/16836-2148640" border="0" alt="https://techidaily.com" width="234" height="60"/>
-</a>
-<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2148640/16836" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Part 2\. How To Make The Animation Talks
 
@@ -277,6 +248,10 @@ Click on the upload icon (+) and select the anime or cartoon character image. Yo
 After selecting the talking avatar, you can input your text and choose a voiceover option from the provided selection. Adjust parameters such as accent, speed, pitch, and volume to your liking. While it’s optional, you can also choose to include subtitles and background music, and even change the background.
 
 ![Customize the animated character talking video](https://images.wondershare.com/virbo/article/2024/02/how-to-make-animation-talk-8.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/hHPljBHrvkA?si=HwdfDM9rlbABSIrx&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 For those preferring to use their own voice, select either "Audio Upload" to upload existing audio files or "Online Recording" to record directly within the software. If your audio is embedded within a video file, choose "Extract audio" and Virbo will extract the audio accordingly.
 
@@ -389,6 +364,10 @@ Cons
 * Some users have experienced difficulties uploading their personal videos and audio files to the platform
 
 ![Veed.io talking photo online](https://images.wondershare.com/virbo/article/2024/02/photo-speak-online-2.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/JNxZ4Z6BVCg?si=522oz1OPSQDhNYWT&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### 3\. Elai.io
 
@@ -888,6 +867,10 @@ After selecting the talking avatar, input text and choose a voiceover option fro
 If you'd rather use your own voice, utilize the Wondershare Virbo mobile app and tap "record audio."
 
 ![Generate and customize talking photo online](https://images.wondershare.com/virbo/article/2024/02/photo-speak-online-13.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/3hS27nZVi9Y?si=_Zqj_l4a4XkPqT2S&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 **Step 4:** Download the talking avatar
 
@@ -1045,13 +1028,6 @@ A **talking head video** features a person talking directly in front of a camera
 
 Now, it’s time to explore the major types of talking head videos that serve different purposes. Let’s explore them one by one and learn how they are beneficial for you.
 
-<!-- affiliate ads begin -->
-<a href="https://laganoo.pxf.io/c/5597632/1484945/16446" target="_top" id="1484945">
-  <img src="//a.impactradius-go.com/display-ad/16446-1484945" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1484945/16446" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### 1\. Explainer Talking Head Videos
 
 An [explainer video](https://virbo.wondershare.com/marketing/types-and-examples-of-explainer-videos.html) is the most common **talking head video example**. These videos are made to explain concepts or topics related to different subjects. Content creators use this type of video to make connections with their audiences. Moreover, some businesses use explainer videos on their landing pages for marketing purposes.
@@ -1075,13 +1051,6 @@ Using a talking head video strategy is helpful for interviews. In these videos, 
 Customers or content creators make product review videos to share their opinions about products or services. This **example of a talking head video** helps demonstrate a product to the audience with different perspectives. Business owners can create engaging videos to assist their viewers in understanding their products and services.
 
 ![product review talking head video example](https://images.wondershare.com/virbo/article/2024/02/know-more-about-talking-head-videos-5.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://wigfever.sjv.io/c/5597632/2005196/22899" target="_top" id="2005196">
-  <img src="//a.impactradius-go.com/display-ad/22899-2005196" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://wigfever.sjv.io/i/5597632/2005196/22899" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Part 2\. Create Perfect Talking Head Videos for Impressive Results Using Wondershare Virbo
 
@@ -1271,6 +1240,10 @@ Input your desired text and select a voiceover from the options provided below t
 
 ![Customize voice for the talking Memoji](https://images.wondershare.com/virbo/article/2024/02/how-to-make-memoji-talk-6.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/td3ojuzhloY?si=N_maQNiJWrJp7XZl&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 If you need help with [how to make your Memoji talk](https://www.youtube.com/watch?v=GDqbSvhec9M), you can refer to the video tutorial.
 
 ## Conclusion
@@ -1374,13 +1347,6 @@ Input your desired text and select a voiceover from the options provided below t
 ![Customize voice for the talking Memoji](https://images.wondershare.com/virbo/article/2024/02/how-to-make-memoji-talk-6.jpg)
 
 If you need help with [how to make your Memoji talk](https://www.youtube.com/watch?v=GDqbSvhec9M), you can refer to the video tutorial.
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135364/19272" target="_top" id="2135364">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135364" border="0" alt="https://techidaily.com" width="120" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135364/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Conclusion
 
@@ -1805,6 +1771,10 @@ Now, fine-tune the voiceover's speed, pitch, and volume using the sliders. Once 
 
 ![process voiceover properties and export](https://images.wondershare.com/virbo/article/2024/02/creating-cartoon-conversation-images-with-top-tools-6.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/SyMZxS9479s?si=0T6zZpyN2LBftFTM&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Part 2\. How To Make Chatting Cartoon Images With Side Faces?
 
 As we discussed, **chatting cartoon images** have emerged as vital for engaging with the audience. However, it is not easy to generate side pose animated images using conventional tools. Users can face difficulty in finding a tool to create such images. Nevertheless, you don’t have to worry about this problem, as we have identified a suitable tool for you.
@@ -1854,6 +1824,10 @@ Want to add animations to your casual or working tasks? Follow these steps indiv
 **Step 1.** Initially, visit the official website of the Brush Ninja tool. On the site's main interface, click on the “Create” dropdown option to see available free art tools. Then, select the “Brush Ninja” tool from the list.
 
 ![open brush ninja feature](https://images.wondershare.com/virbo/article/2024/02/creating-cartoon-conversation-images-with-top-tools-11.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LBCobAYzzcc?si=J3eSTQ3AdyxWAjGo&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 **Step 2.** After going into the tool, select “Brush Type” from the given options, including pencil, marker, and more. Then, set the “Brush Size” from tiny to huge size options on the left side. After that, choose “Brush Color” from the available colors on the right side.
 
@@ -1931,13 +1905,6 @@ When considering different talking AI avatars, it's essential to evaluate severa
 
 ![AI talking avatar](https://images.wondershare.com/virbo/article/2024/02/ai-talking-avatars-02.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2130528/26400" target="_top" id="2130528">
-  <img src="//a.impactradius-go.com/display-ad/26400-2130528" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2130528/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### ● **Natural Language Processing (NLP) Abilities**
 
 Look for avatars equipped with advanced NLP capabilities, enabling them to understand and respond to natural language inputs effectively. Avatars with robust NLP can comprehend complex queries, detect sentiment, and provide contextually relevant responses that enhance the overall user experience.
@@ -1949,6 +1916,10 @@ Choose avatars that offer customization features, allowing you to tailor their a
 ### ● **Compatibility and Integration**
 
 Ensure compatibility with your existing platforms and systems, as well as seamless integration capabilities to streamline deployment and usage. Choose avatars that support popular platforms, such as websites, mobile apps, and messaging channels, and offer easy integration through APIs or SDKs.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/qfCSLAhd4FY?si=CUBztmilaeAwl1lw&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### ● **User Experience and Interface**
 
@@ -2113,6 +2084,10 @@ Fliki offers premium features. Check out the table below for more information.
 | -------- | ------------- | ------------- |
 | $0       | $21 per month | $66 per month |
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/1CdWd06fCwc?si=wzg-68q0jAksPRXp&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### 6\. Synthesys
 
 ![synthesys ai talking avatar](https://images.wondershare.com/virbo/article/2024/02/ai-talking-avatars-08.jpg)
@@ -2199,6 +2174,10 @@ Hour One offers premium features. Check out the table below for more information
 | **Free** | **Lite**      | **Business**  | **Enterprise** |
 | -------- | ------------- | ------------- | -------------- |
 | $0       | $25 per month | $95 per month | Custom Pricing |
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/hXIq2G0nShk?si=5Z4Fwv7ZB6oKWsdd&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### 9\. Speechify Studio
 
@@ -2328,13 +2307,6 @@ Elai.io offers premium features. Check out the table provided below for more inf
 ### 4\. Vidnoz AI
 
 ![vidnoz ai talking avatar](https://images.wondershare.com/virbo/article/2024/02/ai-talking-avatars-06.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134230/18498" target="_top" id="2134230">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134230" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134230/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 [Vidnoz AI](https://www.vidnoz.com/) offers cutting-edge tools for video creation, using machine learning and vision technology to automate layout, design, and editing. Users can craft high-quality videos for various purposes with ease.
 
@@ -2551,16 +2523,16 @@ One prominent example of this technology is Virbo's Talking Photo feature, which
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://ai-topics.techidaily.com/2024-approved-demystifying-ai-game-generators/"><u>2024 Approved Demystifying AI Game Generators</u></a></li>
-<li><a href="https://driver-error.techidaily.com/cant-run-rtx-gaming-fix-the-issue-now-done/"><u>Can't Run RTX Gaming? Fix the Issue Now, Done!</u></a></li>
-<li><a href="https://unlock-android.techidaily.com/forgot-pattern-lock-heres-how-you-can-unlock-infinix-note-30-pro-pattern-lock-screen-by-drfone-android/"><u>Forgot Pattern Lock? Heres How You Can Unlock Infinix Note 30 Pro Pattern Lock Screen</u></a></li>
-<li><a href="https://android-pokemon-go.techidaily.com/here-are-some-reliable-ways-to-get-pokemon-go-friend-codes-for-nokia-c300-drfone-by-drfone-virtual-android/"><u>Here Are Some Reliable Ways to Get Pokemon Go Friend Codes For Nokia C300 | Dr.fone</u></a></li>
-<li><a href="https://win-howtos.techidaily.com/1723203802097-how-to-fix-battleye-installation-errors-and-get-back-in-action/"><u>How to Fix BattlEye Installation Errors and Get Back in Action</u></a></li>
-<li><a href="https://some-techniques.techidaily.com/in-2024-innovative-classroom-strategies-using-video-for-immersive-learning/"><u>In 2024, Innovative Classroom Strategies Using Video for Immersive Learning</u></a></li>
-<li><a href="https://ai-topics.techidaily.com/new-narakeet-review-convenient-text-to-speech-voice-maker/"><u>New Narakeet Review Convenient Text to Speech Voice Maker</u></a></li>
-<li><a href="https://change-location.techidaily.com/the-most-useful-tips-for-pokemon-go-ultra-league-on-samsung-galaxy-s23-ultra-drfone-by-drfone-virtual-android/"><u>The Most Useful Tips for Pokemon Go Ultra League On Samsung Galaxy S23 Ultra | Dr.fone</u></a></li>
-<li><a href="https://ai-topics.techidaily.com/updated-top-list-best-5-tools-for-creating-talking-avatars-for-2024/"><u>Updated Top List Best 5 Tools for Creating Talking Avatars for 2024</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/viral-video-to-visuals-converting-tweets-to-costless-cgi-for-2024/"><u>Viral Video to Visuals Converting Tweets to Costless CGI for 2024</u></a></li>
-<li><a href="https://ai-topics.techidaily.com/what-is-ai-marketing/"><u>What Is AI Marketing?</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/new-2024-approved-integrating-soundscape-and-aesthetics-in-windows-photos-app/"><u>[New] 2024 Approved Integrating Soundscape and Aesthetics in Windows Photos App</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/2024-approved-syncopation-and-screenplay-directing-music-videos-with-ios/"><u>2024 Approved Syncopation & Screenplay Directing Music Videos with iOS</u></a></li>
+<li><a href="https://ai-topics.techidaily.com/2024-approved-what-is-an-ai-script-generator/"><u>2024 Approved What Is an AI Script Generator?</u></a></li>
+<li><a href="https://easy-unlock-android.techidaily.com/a-complete-guide-to-oem-unlocking-on-nokia-c32-by-drfone-android/"><u>A Complete Guide To OEM Unlocking on Nokia C32</u></a></li>
+<li><a href="https://android-frp.techidaily.com/in-2024-frp-hijacker-by-hagard-download-and-bypass-your-huawei-frp-locks-by-drfone-android/"><u>In 2024, FRP Hijacker by Hagard Download and Bypass your Huawei FRP Locks</u></a></li>
+<li><a href="https://review-topics.techidaily.com/in-2024-full-guide-to-fix-itoolab-anygo-not-working-on-itel-a60-drfone-by-drfone-virtual-android/"><u>In 2024, Full Guide to Fix iToolab AnyGO Not Working On Itel A60 | Dr.fone</u></a></li>
+<li><a href="https://ai-topics.techidaily.com/new-the-top-english-voice-generator-to-convert-text-into-desired-accent-for-2024/"><u>New The Top English Voice Generator To Convert Text Into Desired Accent for 2024</u></a></li>
+<li><a href="https://fox-pages.techidaily.com/the-ultimate-walkthrough-of-customizing-property-attributes-in-action-modification-interface/"><u>The Ultimate Walkthrough of Customizing Property Attributes in Action Modification Interface</u></a></li>
+<li><a href="https://ai-topics.techidaily.com/updated-2024-approved-design-cartoon-images-with-the-best-tools/"><u>Updated 2024 Approved Design Cartoon Images With the Best Tools</u></a></li>
+<li><a href="https://ai-topics.techidaily.com/updated-2024-approved-guide-on-how-to-enable-the-text-to-speech-function-on-iphone/"><u>Updated 2024 Approved Guide on How to Enable the Text to Speech Function on iPhone</u></a></li>
+<li><a href="https://ai-topics.techidaily.com/updated-2024-approved-how-to-enable-the-text-to-speech-function-on-iphone/"><u>Updated 2024 Approved How to Enable the Text to Speech Function on iPhone</u></a></li>
 </ul></div>
 

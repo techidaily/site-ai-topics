@@ -1,7 +1,7 @@
 ---
 title: "Strategic Expansion: China's Plan to Enhance State Supercomputing Power by 30%%, Achieve 300 Exaflops in Half a Decade"
-date: 2024-11-13T04:29:16.872Z
-updated: 2024-11-14T02:51:41.687Z
+date: 2024-11-19T19:13:24.548Z
+updated: 2024-11-23T18:58:29.818Z
 tags:
   - desktop
 categories:
@@ -12,6 +12,10 @@ thumbnail: https://thmb.techidaily.com/a42282b650e186f3549f7d2aa960eb18debb612fb
 ## HPE Litigates Against China's Inspur: Patent Violation Allegations Overshadowed by Ongoing Sanction-Defying Business Activities in the U.S
 
 [Hewlett Packard](https://www.tomshardware.com/tag/hewlett-packard) [Enterprise](https://www.tomshardware.com/tag/enterprise) (HPE), one of the world's largest makers of servers, has initiated a legal battle against Inspur Group, China's largest server maker, and its affiliates, alleging server patent infringements. HPE accuses Inspur of engaging in deceptive practices and renaming its subsidiaries in the U.S. to continue its business with American companies despite being included into the Entity List.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/pRR3Oq03EuE?si=ZTy8-WH0AesA9zRh&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## HPE: Inspur infringes our patents
 
@@ -24,10 +28,7 @@ thumbnail: https://thmb.techidaily.com/a42282b650e186f3549f7d2aa960eb18debb612fb
  LATEST VIDEOS FROM tomshardware Tom's Hardware
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2111994/7443" target="_top" id="2111994">
-  <img src="//a.impactradius-go.com/display-ad/7443-2111994" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2111994/7443" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/wVVp-GggK3U?si=RJb1ClNQV7GjTu_3&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Despite being on the Entity List, Inspur continues operations in the U.S
@@ -37,10 +38,7 @@ thumbnail: https://thmb.techidaily.com/a42282b650e186f3549f7d2aa960eb18debb612fb
  The complaint claims that Inspur that inspur continues its operations in the United States under Aivres Systems and Betapex. Inspur allegedly removed its branding from products sold in the U.S. and continues to sell them. For example, Inspur's IR5280M6 server is Aivres's 5280M6 machine, it has the same specification and design, according to HPE's complaint. Meanwhile, Inspur has also worked as a contract maker of servers, according to The Register. Yet, if a U.S. entity plans to work with Inspur (or any other party from the Entity List), it has to get a special license from the U.S. government.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1884021/19272" target="_top" id="1884021">
-  <img src="//a.impactradius-go.com/display-ad/19272-1884021" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1884021/19272" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/6KXVWj6Ar1M?si=Cd_jktmoN3e9OzH3&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Stay On the Cutting Edge: Get the Tom's Hardware Newsletter
@@ -66,24 +64,17 @@ thumbnail: https://thmb.techidaily.com/a42282b650e186f3549f7d2aa960eb18debb612fb
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-helps.techidaily.com/new-express-gratitude-free-endings-and-premium-exclusives-for-2024/"><u>[New] Express Gratitude Free Endings & Premium Exclusives for 2024</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/n-2024-exceptional-7-cameras-elevating-online-educational-vlogs/"><u>[New] In 2024, Exceptional 7 Cameras Elevating Online Educational Vlogs</u></a></li>
-<li><a href="https://article-helps.techidaily.com/new-oceanic-adventures-top-camera-pickups-of-2023-for-2024/"><u>[New] Oceanic Adventures - Top Camera Pickups of 2023 for 2024</u></a></li>
-<li><a href="https://ai-topics.techidaily.com/2024-approved-design-cartoon-images-with-the-best-tools/"><u>2024 Approved Design Cartoon Images With the Best Tools</u></a></li>
-<li><a href="https://win-amazing.techidaily.com/free-download-insignia-ns-pcy5bma2-printer-drivers-compatible-with-windows-11-10-and-7/"><u>Free Download: Insignia NS-PCY5BMA2 Printer Drivers Compatible with Windows 11, 10 & 7</u></a></li>
-<li><a href="https://some-techniques.techidaily.com/guide-to-selecting-the-perfect-4k-camera-lens-for-2024/"><u>Guide to Selecting the Perfect 4K Camera Lens for 2024</u></a></li>
-<li><a href="https://ai-topics.techidaily.com/how-to-make-your-memoji-talk-get-creative-with-your-messaging-for-2024/"><u>How To Make Your Memoji Talk? Get Creative With Your Messaging for 2024</u></a></li>
-<li><a href="https://extra-hints.techidaily.com/in-2024-achieving-soft-sound-effects-in-audacity/"><u>In 2024, Achieving Soft Sound Effects in Audacity</u></a></li>
-<li><a href="https://ai-topics.techidaily.com/in-2024-essential-tools-for-creating-dynamic-talking-avatars/"><u>In 2024, Essential Tools for Creating Dynamic Talking Avatars</u></a></li>
-<li><a href="https://ai-topics.techidaily.com/in-2024-how-to-define-ai-video/"><u>In 2024, How to Define AI Video?</u></a></li>
-<li><a href="https://ai-topics.techidaily.com/new-2024-approved-how-to-create-funny-talking-avatars-using-oddcast-text-to-speech-tech/"><u>New 2024 Approved How to Create Funny Talking Avatars Using Oddcast Text to Speech Tech</u></a></li>
-<li><a href="https://ai-topics.techidaily.com/new-in-2024-what-is-an-ai-text-generator/"><u>New In 2024, What Is an AI Text Generator?</u></a></li>
-<li><a href="https://ai-topics.techidaily.com/new-top-list-best-5-tools-for-creating-talking-avatars/"><u>New Top List Best 5 Tools for Creating Talking Avatars</u></a></li>
-<li><a href="https://tech-recovery.techidaily.com/step-by-step-guide-pairing-your-apple-airpods-with-your-hp-computer/"><u>Step-by-Step Guide: Pairing Your Apple AirPods with Your HP Computer</u></a></li>
-<li><a href="https://discover-comparisons.techidaily.com/the-ultimate-tutorial-for-downloading-nuvid-content-with-ease-and-speed/"><u>The Ultimate Tutorial for Downloading Nuvid Content with Ease and Speed</u></a></li>
-<li><a href="https://vp-tips.techidaily.com/the-ultimate-tutorial-on-how-to-openedit-srt-on-mac/"><u>The Ultimate Tutorial on How to Open/Edit SRT on Mac</u></a></li>
-<li><a href="https://ai-topics.techidaily.com/updated-easy-tutorial-how-to-make-a-talking-cartoon-video-step-by-step-for-2024/"><u>Updated Easy Tutorial How To Make a Talking Cartoon Video Step-by-Step for 2024</u></a></li>
-<li><a href="https://ai-topics.techidaily.com/updated-top-10-talking-photo-online-tools-you-have-to-try-for-2024/"><u>Updated Top 10 Talking Photo Online Tools You Have To Try for 2024</u></a></li>
-<li><a href="https://ai-driven-video-production.techidaily.com/updated-video-editing-on-a-shoestring-best-software-for-2024/"><u>Updated Video Editing on a Shoestring Best Software for 2024</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/new-first-steps-in-mastering-av1-coders/"><u>[New] First Steps in Mastering AV1 Coders</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/n-2024-swiftly-render-and-upload-videos-tips-for-speedy-youtube-submissions/"><u>[New] In 2024, Swiftly Render & Upload Videos Tips for Speedy YouTube Submissions</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-2024-approved-exploring-mobile-youtube-usage-on-different-oses/"><u>[Updated] 2024 Approved Exploring Mobile YouTube Usage on Different OSes</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/2024-approved-the-ultimate-transformation-mp4-plus-srt-success/"><u>2024 Approved The Ultimate Transformation MP4 + SRT Success</u></a></li>
+<li><a href="https://location-fake.techidaily.com/5-hassle-free-solutions-to-fake-location-on-find-my-friends-of-samsung-galaxy-s24-ultra-drfone-by-drfone-virtual-android/"><u>5 Hassle-Free Solutions to Fake Location on Find My Friends Of Samsung Galaxy S24 Ultra | Dr.fone</u></a></li>
+<li><a href="https://fix-guide.techidaily.com/my-videos-arent-playing-on-poco-x5-what-can-i-do-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>My Videos Arent Playing on Poco X5 – What Can I Do? | Dr.fone</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/top-10-reliable-video-transcoding-tools-from-mkv-to-mp4-on-pc-and-mac/"><u>Top 10 Reliable Video Transcoding Tools From MKV to MP4 on PC and Mac</u></a></li>
+<li><a href="https://tech-revival.techidaily.com/trasforma-le-tue-immagini-pbm-in-formato-jpg-senza-costi-con-movavi-online-la-soluzione-di-taglio-e-conversione-piu-semplice/"><u>Trasforma Le Tue Immagini PBM in Formato JPG Senza Costi Con Movavi Online: La Soluzione Di Taglio E Conversione Più Semplice!</u></a></li>
+<li><a href="https://ai-topics.techidaily.com/updated-design-cartoon-images-with-the-best-tools/"><u>Updated Design Cartoon Images With the Best Tools</u></a></li>
+<li><a href="https://ai-topics.techidaily.com/updated-what-is-ai-api/"><u>Updated What Is AI API?</u></a></li>
+<li><a href="https://ai-topics.techidaily.com/updated-what-is-ai-marketing-for-2024/"><u>Updated What Is AI Marketing for 2024</u></a></li>
+<li><a href="https://ai-topics.techidaily.com/updated-what-is-an-ai-art-generator-in-2024/"><u>Updated What Is an AI Art Generator, In 2024</u></a></li>
 </ul></div>
 

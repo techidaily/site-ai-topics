@@ -1,7 +1,7 @@
 ---
 title: Snag the Best Deal on Mini Snapdragon X Elite Computing Power - Available Now for Preorder
-date: 2024-11-13T03:48:46.739Z
-updated: 2024-11-14T00:14:14.306Z
+date: 2024-11-20T22:13:26.772Z
+updated: 2024-11-23T17:46:14.225Z
 tags:
   - desktop
 categories:
@@ -14,6 +14,10 @@ thumbnail: https://thmb.techidaily.com/fd5c5fb492328cdc04de64e70980911350de51156
 In an interesting turn of events, the first device boasting the highest-end version of Qualcomm's Snapdragon X Elite chipset isn't even a laptop. It's a Mini PC in the form of an official Dev Kit, which undercuts ([or at least matches](https://shop-links.co/link/?exclusive=1&publisher_slug=itechdaily19598&url=https%3A%2F%2Fwww.anrdoezrs.net%2Fclick-8900246-12578053%3Fsid%3Dtomshardware-us-1069194734322795598%26url%3Dhttps%3A%2F%2Fwww.dell.com%2Fen-us%2Fshop%2Fdell-computer-laptops%2Fnew-inspiron-14-plus-laptop%2Fspd%2Finspiron-14-7441-laptop%2Fuseichbts7441hcjp%3Fref%3Dvariantstack) ) the price of even the lower-end Snapdragon X Plus laptops, and it's set for a full launch on August 23rd, though it's also already available for pre-order on[Arrow.com](https://www.arrow.com/en/products/c8380-12c-mp-32g/thundercomm) for just $899 USD.
 
  We just reviewed a Snapdragon X Elite laptop— the[Dell XPS 13 9345](https://www.tomshardware.com/laptops/ultrabooks-ultraportables/dell-xps-13-9345-review) — and that unit retails for $1299, which is about $400 pricier for the laptop form factor.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/FLO5dwmJAVs?si=1OYH8rv8aPaMsCiU&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Qualcomm Snapdragon Dev Kit for Windows Specifications
 
@@ -37,10 +41,7 @@ In an interesting turn of events, the first device boasting the highest-end vers
  But it's not all doom and gloom in the world of Qualcomm Snapdragon X Elite laptops — or Mini PCs in this case — as long as you have the requisite monitor and peripherals to get it up and running. You generally have a pretty usable version of[Windows 11](https://www.tomshardware.com/tag/windows-11) here, and a number of productivity and creative applications that will work perfectly fine. If your needs are more professional or are particularly focused on development efforts— perhaps even efforts to improve the state of games listed on[Works on Windows on Arm](https://www.worksonwoa.com/games/) — this may just be the Mini PC for you.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2016165/19272" target="_top" id="2016165">
-  <img src="//a.impactradius-go.com/display-ad/19272-2016165" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2016165/19272" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/jvwX82j3ci0?si=gAWoovjXgs3m1d7S&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Stay On the Cutting Edge: Get the Tom's Hardware Newsletter
@@ -66,22 +67,18 @@ In an interesting turn of events, the first device boasting the highest-end vers
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-record-videos.techidaily.com/new-driving-view-counts-upward-on-youtube-6-proven-techniques-for-2024/"><u>[New] Driving View Counts Upward on YouTube 6 Proven Techniques for 2024</u></a></li>
-<li><a href="https://fox-links.techidaily.com/new-in-2024-expert-guide-to-applying-luts-in-professional-production/"><u>[New] In 2024, Expert Guide to Applying LUTs in Professional Production</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/updated-2024-approved-360-video-editors-how-to-upload-360-video-to-youtube/"><u>[Updated] 2024 Approved 360 Video Editors How to Upload 360 Video to YouTube</u></a></li>
-<li><a href="https://some-knowledge.techidaily.com/updated-exploring-high-definition-with-nikon-d500/"><u>[Updated] Exploring High-Definition with Nikon D500</u></a></li>
-<li><a href="https://extra-lessons.techidaily.com/harnessing-the-full-potential-of-luts-in-adobe-premiere-pro/"><u>Harnessing the Full Potential of LUTs in Adobe Premiere Pro</u></a></li>
-<li><a href="https://win-able.techidaily.com/how-to-solve-dying-light-2s-stuttering-and-low-fps-problems-on-pc-step-by-step-guide/"><u>How To Solve Dying Light 2'S Stuttering and Low FPS Problems on PC - Step-by-Step Guide</u></a></li>
-<li><a href="https://ios-unlock.techidaily.com/in-2024-disabling-apple-iphone-6-plus-parental-restrictions-withwithout-password-by-drfone-ios/"><u>In 2024, Disabling Apple iPhone 6 Plus Parental Restrictions With/Without Password</u></a></li>
-<li><a href="https://ai-topics.techidaily.com/in-2024-exploring-the-best-text-to-speech-online-tools-to-use/"><u>In 2024, Exploring The Best Text-to-Speech Online Tools To Use</u></a></li>
-<li><a href="https://sim-unlock.techidaily.com/in-2024-how-to-check-if-your-google-pixel-8-is-unlocked-by-drfone-android/"><u>In 2024, How To Check if Your Google Pixel 8 Is Unlocked</u></a></li>
-<li><a href="https://ai-topics.techidaily.com/in-2024-top-6-celebrity-text-to-speech-ai-voice-generators-you-may-like/"><u>In 2024, Top 6 Celebrity Text to Speech AI Voice Generators You May Like</u></a></li>
-<li><a href="https://ai-topics.techidaily.com/new-breakthrough-how-to-make-a-picture-speak/"><u>New Breakthrough How to Make A Picture Speak</u></a></li>
-<li><a href="https://ai-topics.techidaily.com/power-of-ai-thumbnail-generators/"><u>Power of AI Thumbnail Generators</u></a></li>
-<li><a href="https://blue-screen-error.techidaily.com/understanding-and-resolving-bsod-errors-related-to-pfn-list-corruption-on-microsofts-latest-os-windows-11/"><u>Understanding and Resolving BSOD Errors Related to PFN List Corruption on Microsoft's Latest OS, Windows 11</u></a></li>
-<li><a href="https://ai-topics.techidaily.com/updated-in-2024-the-ultimate-guide-to-generating-speech-in-different-languages-with-the-best-tools/"><u>Updated In 2024, The Ultimate Guide to Generating Speech in Different Languages With the Best Tools</u></a></li>
-<li><a href="https://ai-topics.techidaily.com/updated-in-2024-what-is-ai-generated-text/"><u>Updated In 2024, What Is AI Generated Text?</u></a></li>
-<li><a href="https://ai-topics.techidaily.com/updated-the-most-recommended-natural-ai-hindi-voice-generator/"><u>Updated The Most Recommended Natural AI Hindi Voice Generator</u></a></li>
-<li><a href="https://ai-topics.techidaily.com/updated-what-is-an-ai-voice-generator-for-2024/"><u>Updated What Is an AI Voice Generator for 2024</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/new-expert-strategies-for-choosing-valheim-crops/"><u>[New] Expert Strategies for Choosing Valheim Crops</u></a></li>
+<li><a href="https://video-capture.techidaily.com/new-the-complete-guide-to-scheduling-and-recording-online-meetings-with-slack-and-filmora-for-2024/"><u>[New] The Complete Guide to Scheduling & Recording Online Meetings with Slack & Filmora for 2024</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ed-2024-approved-leveraging-youtube-content-for-igtv-prominence/"><u>[Updated] 2024 Approved Leveraging YouTube Content for IGTV Prominence</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/updated-in-2024-in-depth-analysis-the-revolutionary-4k-features-in-benq-sw320/"><u>[Updated] In 2024, In-Depth Analysis The Revolutionary 4K Features in BenQ SW320</u></a></li>
+<li><a href="https://vimeo-videos.techidaily.com/2024-approved-tactics-to-accelerate-vimeo-video-viewership/"><u>2024 Approved Tactics to Accelerate Vimeo Video Viewership</u></a></li>
+<li><a href="https://ai-topics.techidaily.com/get-closer-to-the-artistic-marvels-of-ai-portrait-generator/"><u>Get Closer to the Artistic Marvels of AI Portrait Generator</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/in-2024-full-tutorial-to-bypass-your-samsung-galaxy-s23plus-face-lock-by-drfone-android/"><u>In 2024, Full Tutorial to Bypass Your Samsung Galaxy S23+ Face Lock?</u></a></li>
+<li><a href="https://ai-topics.techidaily.com/in-2024-what-is-ai-pixel-art-generator/"><u>In 2024, What Is AI Pixel Art Generator?</u></a></li>
+<li><a href="https://buynow-help.techidaily.com/inside-cyberpunk-2077-a-game-of-mistakes-or-a-gem-in-progress/"><u>Inside Cyberpunk 2077: A Game of Mistakes or a Gem in Progress?</u></a></li>
+<li><a href="https://ai-topics.techidaily.com/new-how-to-define-ai-video/"><u>New How to Define AI Video?</u></a></li>
+<li><a href="https://tech-haven.techidaily.com/resolve-frame-drop-issues-in-obs-comprehensive-guide/"><u>Resolve Frame Drop Issues in OBS: Comprehensive Guide</u></a></li>
+<li><a href="https://ai-topics.techidaily.com/updated-2024-approved-what-is-chatgpt/"><u>Updated 2024 Approved What Is ChatGPT?</u></a></li>
+<li><a href="https://ai-topics.techidaily.com/updated-in-2024-a-detailed-and-trustworthy-review-of-murfai-ai-text-to-speech-tool/"><u>Updated In 2024, A Detailed and Trustworthy Review of Murf.ai AI Text-to-Speech Tool</u></a></li>
 </ul></div>
 

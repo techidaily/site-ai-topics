@@ -1,7 +1,7 @@
 ---
 title: New In 2024, How To Make Animation Talk? Explained with Easy Steps
-date: 2024-11-12T02:51:05.607Z
-updated: 2024-11-13T23:33:41.150Z
+date: 2024-11-18T16:12:05.424Z
+updated: 2024-11-23T16:46:07.293Z
 tags: 
   - ai photos
   - talking photos
@@ -42,6 +42,10 @@ After logging in, the dashboard will be your landing page. This page will featur
 Since the template comes with a pre-existing character, you can either use it as-is or modify it according to your requirements. If you want to edit the animated character, you can click on the character to open the Actions Tab.
 
 ![Edit and customize the animated character](https://images.wondershare.com/virbo/article/2024/02/how-to-make-animation-talk-2.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/kiW7sLvL65k?si=IHSeRFsYCrfqpn2o&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Browse through the available actions to change the character's movements or use the search function to find specific actions. Additionally, you can also explore the Expressions tab to modify the character's facial expressions, skin tone, hair color, eye color, and attire.
 
@@ -157,6 +161,10 @@ Creating a talking animation is possible with the help of AI and the right tool 
 
 If you are ready to learn **how to make animation talk**, let’s jump right in.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/bXmwwSmYqq4?si=Bb-eJfLnlpeeClyt&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Part 1\. How To Create Simple Animation From a Template
 
 Have you already prepared the animation before we get into **how to make talking animation**? If not, that’s okay. Making a basic and simple animation can be done by using a template on platforms like Animaker. This method is especially great if you're not familiar with making video animations and want an easy way to create one.
@@ -245,13 +253,6 @@ After selecting the talking avatar, you can input your text and choose a voiceov
 
 ![Customize the animated character talking video](https://images.wondershare.com/virbo/article/2024/02/how-to-make-animation-talk-8.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2006933/19272" target="_top" id="2006933">
-  <img src="//a.impactradius-go.com/display-ad/19272-2006933" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2006933/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 For those preferring to use their own voice, select either "Audio Upload" to upload existing audio files or "Online Recording" to record directly within the software. If your audio is embedded within a video file, choose "Extract audio" and Virbo will extract the audio accordingly.
 
 ![Add audio to the animated character’s photo](https://images.wondershare.com/virbo/article/2024/02/how-to-make-animation-talk-9.jpg)
@@ -287,6 +288,10 @@ Images with proper lighting and high resolution are essential for achieving cris
 Select images where the anime character is facing forward and their face is clearly visible. This allows for precise facial animation, including lip-syncing and expression changes, which are key elements in creating realistic talking animations.
 
 ![Making animated characters talk](https://images.wondershare.com/virbo/article/2024/02/how-to-make-animation-talk-10.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/hHPljBHrvkA?si=HwdfDM9rlbABSIrx&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Conclusion
 
@@ -344,13 +349,6 @@ After clicking the feature, a window will pop up on your device with the “Sele
 Once you pick the avatar, locate the text box on the left side of the window. Write an engaging script to convey a message through your realistic, talking animated avatars.
 
 ![proceed to add text script](https://images.wondershare.com/virbo/article/2024/02/creating-cartoon-conversation-images-with-top-tools-4.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2105860/7443" target="_top" id="2105860">
-  <img src="//a.impactradius-go.com/display-ad/7443-2105860" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2105860/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 #### Step 4\. Select Your Desired Language and Accent for Creating a Realistic Avatar
 
@@ -437,13 +435,6 @@ All in all, **cartoon conversation images** are a popular form of visual enterta
 However, if you want to cartoonize your content with a professional touch, Wondershare Virbo is the ultimate choice. This tool provides users with realistic AI avatars to generate cartoon images that satisfy their artistic sense.
 
 [_Eric Miller **Eric Miller** Apr 16, 24 **Share article:**_](https://images.wondershare.com/virbo/article/writer/eric-miller.png) **Eric Miller** Apr 16, 24 **Share article:**_ ](https://tools.techidaily.com/wondershare/virbo/download/)[](javascript:;) [](javascript:;) [](#) [](#)
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2012420/19272" target="_top" id="2012420">
-  <img src="//a.impactradius-go.com/display-ad/19272-2012420" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2012420/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### You May Also Like
 
@@ -728,13 +719,6 @@ Visit the [Wondershare Virbo website](https://tools.techidaily.com/wondershare/v
 
 ![How to create talking photo online](https://images.wondershare.com/virbo/article/2024/02/photo-speak-online-11.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135418/19272" target="_top" id="2135418">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135418" border="0" alt="https://techidaily.com" width="468" height="60"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135418/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 [Get Started Online](https://tools.techidaily.com/wondershare/virbo/download/) [Free Download](https://tools.techidaily.com/wondershare/virbo/download/)
 
 **Step 2:** Upload a portrait photo or opt for an AI avatar template
@@ -839,6 +823,10 @@ Cons
 * There are still pixelation issues around the avatar’s mouth area
 
 ![Dupdub talking photo online](https://images.wondershare.com/virbo/article/2024/02/photo-speak-online-4.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/0pSRlspzW-A?si=A82G3Yxwj_31cKDq&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### 5\. Tokking Heads
 
@@ -1374,6 +1362,10 @@ Speechify Studio offers premium features. Check out the table below for more inf
 
 ![vyond ai talking avatar](https://images.wondershare.com/virbo/article/2024/02/ai-talking-avatars-12.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/6KXVWj6Ar1M?si=Cd_jktmoN3e9OzH3&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 [Vyond](https://www.vyond.com/) is an AI-driven video creation platform that empowers users with the capabilities of a full-scale video production studio, simplifying script writing to finished video production. With Vyond Go, the pioneering generative AI-powered script and video creator, users can swiftly generate a rough-cut video from basic text prompts.
 
 #### Key Features
@@ -1696,10 +1688,7 @@ Once you've crafted your Memoji, you can use it across various Apple platforms a
 ![How to make your Memoji talk on iPhone](https://images.wondershare.com/virbo/article/2024/02/how-to-make-memoji-talk-1.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2130869/7443" target="_top" id="2130869">
-  <img src="//a.impactradius-go.com/display-ad/7443-2130869" border="0" alt="https://techidaily.com" width="600" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2130869/7443" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/NC0rdKEQ98o?si=HYgqC8CxF_WTO5if&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Part 2\. How To Easily Make Your Own Memoji on iPhone
@@ -1976,13 +1965,6 @@ To create a talking photo on mobile, follow the steps outlined below:
 
 ![virbo AI-generated talking photo](https://images.wondershare.com/virbo/article/2024/02/how-to-make-a-picture-speak-05.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135416/19272" target="_top" id="2135416">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135416" border="0" alt="https://techidaily.com" width="336" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135416/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 1. Once you've chosen the AI talking photo you prefer, simply click on the **Create Video**button located below.
 
 ![virbo create video](https://images.wondershare.com/virbo/article/2024/02/how-to-make-a-picture-speak-06.jpg)
@@ -2107,6 +2089,10 @@ Enter the realm of visionary storytellers and explore Virbo—a tool worth disco
 
 [Get Started Online](https://tools.techidaily.com/wondershare/virbo/download/) [Free Download](https://tools.techidaily.com/wondershare/virbo/download/)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LT4sdZgUvRQ?si=SvQD5FouEzu4UHpJ&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### **For Mobile**
 
 To create a talking photo on mobile, follow the steps outlined below:
@@ -2177,18 +2163,15 @@ Moreover, you can also learn tips to make your interactive videos even more prof
 
 ![understanding details of talking head videos](https://images.wondershare.com/virbo/article/2024/02/know-more-about-talking-head-videos-1.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/0dOfcihxjiw?si=_fkp1S1Uw0N1dp6b&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Part 1\. Getting To Know the Major Types of Talking Head Videos
 
 A **talking head video** features a person talking directly in front of a camera. It can also include the shoulders or even the entire body of the speaker. You can generate these AI talking head videos by animating your pictures for more engagement. This type of video is mainly intended for tutorials, interviews, product reviews, and training. Most importantly, they help to improve your interactions with viewers.
 
 Now, it’s time to explore the major types of talking head videos that serve different purposes. Let’s explore them one by one and learn how they are beneficial for you.
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2129739/7443" target="_top" id="2129739">
-  <img src="//a.impactradius-go.com/display-ad/7443-2129739" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2129739/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### 1\. Explainer Talking Head Videos
 
@@ -2380,18 +2363,15 @@ After that, select the “Text Script” option to type or paste the text. This 
 
 ![create script for video using ai](https://images.wondershare.com/virbo/article/2024/02/know-more-about-talking-head-videos-8.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://imp.i110150.net/c/5597632/924297/11305" target="_top" id="924297">
-  <img src="//a.impactradius-go.com/display-ad/11305-924297" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://imp.i110150.net/i/5597632/924297/11305" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 #### Step 4\. Choose the Desired Language and Accent
 
 You can click on the languages menu to access a new pop-up window. In this window, you can choose the required language and accent. Next, click “Gender” from the drop-down you want to use for the voiceover. After selecting these options, hit the “OK” button to proceed.
 
 ![change language and gender properties](https://images.wondershare.com/virbo/article/2024/02/know-more-about-talking-head-videos-9.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/HtM7d4dpN1I?si=2vN_xgVGD4eYGORu&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 #### Step 5\. Adjust the Voiceover Features
 
@@ -2404,6 +2384,10 @@ Once you have selected the language and gender, it is time to adjust the voiceov
 After making all the selections, you are ready to take your masterpiece out. For that, you can select the “Export” option. Then, you can also adjust the resolution for the final output. Afterward, it takes you to the “My Creations” window to check your **AI talking head video**.
 
 ![export final talking head video](https://images.wondershare.com/virbo/article/2024/02/know-more-about-talking-head-videos-11.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/f3PFn06LijE?si=zHrmlTOzrKxXe-k4&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Part 3\. Where Can a Talking Head Video Be Put To Use?
 
@@ -2455,18 +2439,22 @@ Throughout this article, we have provided all the essential information about **
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://video-capture.techidaily.com/new-how-to-capture-your-gaming-success-on-win10-for-2024/"><u>[New] How to Capture Your Gaming Success on Win10 for 2024</u></a></li>
-<li><a href="https://ai-topics.techidaily.com/2024-approved-how-to-define-ai-video/"><u>2024 Approved How to Define AI Video?</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/a-thrilling-sci-fi-shooter-experience-with-an-engaging-narrative/"><u>A Thrilling Sci-Fi Shooter Experience with an Engaging Narrative</u></a></li>
-<li><a href="https://win-deluxe.techidaily.com/boost-your-educational-outreach-with-a-strategic-mass-email-campaign-insights-from-the-mmsw-team/"><u>Boost Your Educational Outreach with a Strategic Mass Email Campaign - Insights From the MMSW Team</u></a></li>
-<li><a href="https://on-screen-recording.techidaily.com/critical-analysis-the-best-skype-recorders-of-2023/"><u>Critical Analysis The Best Skype Recorders of 2023</u></a></li>
-<li><a href="https://facebook.techidaily.com/how-do-you-hide-your-chats-on-messenger/"><u>How Do You Hide Your Chats on Messenger?</u></a></li>
-<li><a href="https://fake-location.techidaily.com/how-to-simulate-gps-movement-in-ar-games-on-lava-yuva-3-drfone-by-drfone-virtual-android/"><u>How to Simulate GPS Movement in AR games On Lava Yuva 3? | Dr.fone</u></a></li>
-<li><a href="https://ai-topics.techidaily.com/in-2024-ai-portrait-generator-getting-closer-to-the-artistic-marvels/"><u>In 2024, AI Portrait Generator Getting Closer to the Artistic Marvels</u></a></li>
-<li><a href="https://ai-topics.techidaily.com/in-2024-the-best-text-to-audio-converters-of-all-times/"><u>In 2024, The Best Text-to-Audio Converters of All Times</u></a></li>
-<li><a href="https://ai-topics.techidaily.com/the-top-english-voice-generator-to-convert-text-into-desired-accent-for-2024/"><u>The Top English Voice Generator To Convert Text Into Desired Accent for 2024</u></a></li>
-<li><a href="https://ai-topics.techidaily.com/top-5-best-tools-to-convert-text-to-audio-online-for-free-for-2024/"><u>Top 5 Best Tools to Convert Text to Audio Online for Free for 2024</u></a></li>
-<li><a href="https://extra-resources.techidaily.com/ultimate-picks-for-top-rated-free-srt-translation-tools/"><u>Ultimate Picks for Top-Rated Free SRT Translation Tools</u></a></li>
-<li><a href="https://ai-topics.techidaily.com/updated-the-best-text-to-speech-online-tools-to-use-for-2024/"><u>Updated The Best Text-to-Speech Online Tools To Use for 2024</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/new-behind-the-lens-detailed-evaluation-of-sj-cam-s6/"><u>[New] Behind the Lens Detailed Evaluation of SJ-CAM S6</u></a></li>
+<li><a href="https://desktop-recording.techidaily.com/new-three-key-strategies-to-record-and-review-education-talks-on-macbooks/"><u>[New] Three Key Strategies to Record and Review Education Talks on MacBooks</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/updated-strategies-for-structuring-an-efficient-collaborative-office-environment/"><u>[Updated] Strategies for Structuring an Efficient, Collaborative Office Environment</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/2024-approved-inspire-your-physical-endeavors-the-most-motivating-track-list-for-gym-goers/"><u>2024 Approved Inspire Your Physical Endeavors The Most Motivating Track List for Gym Goers</u></a></li>
+<li><a href="https://ai-topics.techidaily.com/2024-approved-users-guide-how-to-create-photo-talking-videos-with-the-best-tools/"><u>2024 Approved Users Guide How To Create Photo Talking Videos With the Best Tools?</u></a></li>
+<li><a href="https://tech-renaissance.techidaily.com/apple-vision-pro-as-a-game-changer-in-business-success-stories-from-5-pioneering-firms/"><u>Apple Vision Pro as a Game Changer in Business: Success Stories From 5 Pioneering Firms</u></a></li>
+<li><a href="https://ai-topics.techidaily.com/in-2024-get-closer-to-the-artistic-marvels-of-ai-portrait-generator/"><u>In 2024, Get Closer to the Artistic Marvels of AI Portrait Generator</u></a></li>
+<li><a href="https://ai-topics.techidaily.com/new-easy-steps-to-create-talking-memoji-on-iphone-free/"><u>New Easy Steps To Create Talking Memoji on iPhone Free</u></a></li>
+<li><a href="https://ai-topics.techidaily.com/new-what-is-an-ai-avatar-for-2024/"><u>New What Is an AI Avatar for 2024</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/optimizing-your-podcasts-rss-feed-performance-and-structure-for-2024/"><u>Optimizing Your Podcast's RSS Feed Performance and Structure for 2024</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/save-big-with-mondly-no-more-fees/"><u>Save Big with Mondly, No More Fees</u></a></li>
+<li><a href="https://techtrends.techidaily.com/the-ultimate-walkthrough-for-opening-rar-formats-on-a-mac-computer/"><u>The Ultimate Walkthrough for Opening RAR Formats on a Mac Computer</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/universal-unlock-pattern-for-samsung-galaxy-s23plus-by-drfone-android/"><u>Universal Unlock Pattern for Samsung Galaxy S23+</u></a></li>
+<li><a href="https://ai-topics.techidaily.com/updated-narakeet-review-convenient-text-to-speech-voice-maker/"><u>Updated Narakeet Review Convenient Text to Speech Voice Maker</u></a></li>
+<li><a href="https://ai-topics.techidaily.com/updated-the-top-10-ai-avatar-generators-for-2024/"><u>Updated The Top 10 AI Avatar Generators for 2024</u></a></li>
+<li><a href="https://ai-topics.techidaily.com/updated-top-6-celebrity-text-to-speech-ai-voice-generators-you-may-like/"><u>Updated Top 6 Celebrity Text to Speech AI Voice Generators You May Like</u></a></li>
+<li><a href="https://ai-topics.techidaily.com/what-is-an-ai-video-maker-for-2024/"><u>What Is an AI Video Maker for 2024</u></a></li>
 </ul></div>
 

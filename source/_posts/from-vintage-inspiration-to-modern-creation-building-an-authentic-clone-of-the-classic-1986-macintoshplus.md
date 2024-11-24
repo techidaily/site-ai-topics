@@ -1,7 +1,7 @@
 ---
 title: "From Vintage Inspiration to Modern Creation: Building an Authentic Clone of the Classic 1986 Macintosh+"
-date: 2024-11-10T16:57:40.879Z
-updated: 2024-11-13T19:35:24.409Z
+date: 2024-11-21T17:09:33.112Z
+updated: 2024-11-23T23:05:37.546Z
 tags:
   - desktop
 categories:
@@ -31,6 +31,10 @@ The 2024 World Server Throwing Championship (WSTC) organizers are[calling for en
 
  We think there is plenty of room for improvement on the 2022 winning throw. Remember, the world record distance for throwing a 16-pound shot put is nearly 75 feet. For another comparison, in the Swedish sport of Stångstörtning, a roughly 57-pound log is tossed, with the world record distance being 32 feet. Much will depend on how well-tuned and trained the WSTC 2024 athletes are…
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/qmQjRcnaq9g?si=jadcGtXemUAlKOTa&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Stay On the Cutting Edge: Get the Tom's Hardware Newsletter
 
  Get Tom's Hardware's best news and in-depth reviews, straight to your inbox.
@@ -56,24 +60,19 @@ The 2024 World Server Throwing Championship (WSTC) organizers are[calling for en
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://video-capture.techidaily.com/new-in-2024-clan-combat-chronicles-top-10-games-inspired-by-ghost-of-tsushima/"><u>[New] In 2024, Clan Combat Chronicles Top 10 Games Inspired by Ghost of Tsushima</u></a></li>
-<li><a href="https://howto.techidaily.com/android-safe-mode-how-to-turn-off-safe-mode-on-honor-play-40c-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Android Safe Mode - How to Turn off Safe Mode on Honor Play 40C? | Dr.fone</u></a></li>
-<li><a href="https://facebook-clips.techidaily.com/breakthroughs-in-fb-advertising-with-a-focus-on-video-content-mastery/"><u>Breakthroughs in FB Advertising with a Focus on Video Content Mastery</u></a></li>
-<li><a href="https://phone-solutions.techidaily.com/easy-steps-to-recover-deleted-call-history-from-nokia-c12-pro-by-fonelab-android-recover-call-logs/"><u>Easy steps to recover deleted call history from Nokia C12 Pro</u></a></li>
-<li><a href="https://ai-topics.techidaily.com/in-2024-best-text-to-audio-converters-of-all-times/"><u>In 2024, Best Text-to-Audio Converters of All Times</u></a></li>
-<li><a href="https://android-pokemon-go.techidaily.com/in-2024-here-are-some-of-the-best-pokemon-discord-servers-to-join-on-xiaomi-redmi-note-13-proplus-5g-drfone-by-drfone-virtual-android/"><u>In 2024, Here are Some of the Best Pokemon Discord Servers to Join On Xiaomi Redmi Note 13 Pro+ 5G | Dr.fone</u></a></li>
-<li><a href="https://fox-helps.techidaily.com/in-2024-spinning-interest-into-action-writing-podcast-intros/"><u>In 2024, Spinning Interest Into Action Writing Podcast Intros</u></a></li>
-<li><a href="https://ai-topics.techidaily.com/new-top-5-best-tools-to-convert-text-to-audio-online-for-free/"><u>New Top 5 Best Tools to Convert Text to Audio Online for Free</u></a></li>
-<li><a href="https://games-able.techidaily.com/unveiling-the-secrets-of-gpu-leaning/"><u>Unveiling the Secrets of GPU Leaning</u></a></li>
-<li><a href="https://ai-topics.techidaily.com/updated-in-2024-the-most-recommended-natural-ai-hindi-voice-generator/"><u>Updated In 2024, The Most Recommended Natural AI Hindi Voice Generator</u></a></li>
-<li><a href="https://ai-topics.techidaily.com/updated-what-is-an-ai-text-generator-in-2024/"><u>Updated What Is an AI Text Generator, In 2024</u></a></li>
-<li><a href="https://discover-cloud.techidaily.com/user-friendly-guide-to-the-ugreen-qi2-multipurpose-foldable-charger-perfect-for-office-use/"><u>User-Friendly Guide to the Ugreen Qi2 Multipurpose Foldable Charger - Perfect for Office Use</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/n-2024-elevate-your-channel-techniques-for-logo-insertion-in-videos/"><u>[New] In 2024, Elevate Your Channel Techniques for Logo Insertion in Videos</u></a></li>
+<li><a href="https://screen-sharing-recording.techidaily.com/updated-in-2024-securing-your-games-with-diverse-screen-capture-options/"><u>[Updated] In 2024, Securing Your Games with Diverse Screen Capture Options</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/2024-approved-connecting-to-google-meet-laptop-plus-mobile/"><u>2024 Approved Connecting to Google Meet Laptop + Mobile</u></a></li>
+<li><a href="https://ai-topics.techidaily.com/2024-approved-easy-steps-to-create-talking-memoji-on-iphone-free/"><u>2024 Approved Easy Steps To Create Talking Memoji on iPhone Free</u></a></li>
+<li><a href="https://youtube-help.techidaily.com/2024-approved-solving-shorts-thumbnail-absence-on-youtube/"><u>2024 Approved Solving Shorts Thumbnail Absence on YouTube</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/crafting-character-adventures-windows-movie-maker-for-animators-for-2024/"><u>Crafting Character Adventures Windows Movie Maker for Animators for 2024</u></a></li>
+<li><a href="https://ai-topics.techidaily.com/finest-text-to-speech-male-voice-tools-for-natural-output/"><u>Finest Text-to-Speech Male Voice Tools for Natural Output</u></a></li>
+<li><a href="https://ai-topics.techidaily.com/in-2024-guide-to-generating-speech-in-different-languages-with-the-best-tools/"><u>In 2024, Guide to Generating Speech in Different Languages With the Best Tools</u></a></li>
+<li><a href="https://iphone-unlock.techidaily.com/in-2024-how-to-unlock-apple-iphone-11-passcode-without-itunes-without-knowing-passcode-drfone-by-drfone-ios/"><u>In 2024, How to Unlock Apple iPhone 11 Passcode without iTunes without Knowing Passcode? | Dr.fone</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/in-2024-what-legendaries-are-in-pokemon-platinum-on-lava-blaze-curve-5g-drfone-by-drfone-virtual-android/"><u>In 2024, What Legendaries Are In Pokemon Platinum On Lava Blaze Curve 5G? | Dr.fone</u></a></li>
+<li><a href="https://ai-topics.techidaily.com/new-2024-approved-new-essential-details-of-making-perfect-talking-face/"><u>New 2024 Approved New Essential Details of Making Perfect Talking Face</u></a></li>
+<li><a href="https://ai-topics.techidaily.com/new-2024-approved-what-is-ai-generated-text/"><u>New 2024 Approved What Is AI Generated Text?</u></a></li>
+<li><a href="https://ai-topics.techidaily.com/new-in-2024-waht-is-ai-pixel-art-generator/"><u>New In 2024, Waht Is AI Pixel Art Generator?</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/windows-macos-mkv-mp4-2024/"><u>Windows / macOS 及網路版 MKV-MP4 格式變更器 - 2024 年度推荐之選</u></a></li>
 </ul></div>
-
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137213/26400" target="_top" id="2137213">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137213" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137213/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 

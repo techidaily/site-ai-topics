@@ -1,7 +1,7 @@
 ---
 title: Graphical Interface Hardware Restricted on PC
-date: 2024-11-09T22:36:52.286Z
-updated: 2024-11-13T21:11:13.229Z
+date: 2024-11-19T19:51:27.704Z
+updated: 2024-11-23T16:33:02.788Z
 tags:
   - win11
   - win10
@@ -29,16 +29,7 @@ thumbnail: https://thmb.techidaily.com/bfb1d21dc7d722196c5d9970ee836e32f9c269de5
 2. [**Reinstall your display driver**](https://coinrule.sjv.io/rqzonv)
 
 <!-- affiliate ads begin -->
-<span id="1424531">
-					<video width="864" height="NaN" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1424531.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/16446-1424531">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1424531.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Flaganoo.pxf.io%2Fc%2F5597632%2F1424531%2F16446'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1424531/16446" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/B2MlLvGxMwI?si=q_blGjXyJrGtzT8d&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### Fix 1: Run System File Checker and DISM commands
@@ -52,16 +43,7 @@ Follow these steps to recover your system files:
 ![](https://images.drivereasy.com/wp-content/uploads/2017/09/img_59b7aea748d7a.png)
 
 <!-- affiliate ads begin -->
-<span id="1492813">
-					<video width="1024" height="576" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1492813.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/14559-1492813">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1492813.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:640px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fpropmoneyinc.pxf.io%2Fc%2F5597632%2F1492813%2F14559'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1492813/14559" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/NC0rdKEQ98o?si=HYgqC8CxF_WTO5if&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  Click**YES** when prompted by the User Account Control.
@@ -69,6 +51,10 @@ Follow these steps to recover your system files:
  2) Type**sfc /scannow**  and press **Enter** . Wait for the scanning to be **100%**  completed.
 
 ![](https://images.drivereasy.com/wp-content/uploads/2017/09/img_59b7af1a7f21e.png)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/gSKkJrJ57EA?si=WDOmInPE9EgQa_tB&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  3) Type the following commands and press **Enter**  after each.
 
@@ -79,20 +65,10 @@ Follow these steps to recover your system files:
 ![](https://images.drivereasy.com/wp-content/uploads/2017/03/4-15.png)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1997675/19272" target="_top" id="1997675">
-  <img src="//a.impactradius-go.com/display-ad/19272-1997675" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1997675/19272" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/P6Wfzj6YNDM?si=WRZQD9zCdQ1_tW1b&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  4) Reboot Windows 10 and run your game software to see if it works. If it doesn’t work, you can try our other fix below.
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2144283/7443" target="_top" id="2144283">
-  <img src="//a.impactradius-go.com/display-ad/7443-2144283" border="0" alt="https://techidaily.com" width="600" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144283/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### Fix 2: Update your display driver
 
@@ -109,6 +85,10 @@ Follow these steps to recover your system files:
  2) Click **Scan Now** . It will quickly detect all driver problems of your computer. This includes your display driver.
 
 ![](https://images.drivereasy.com/wp-content/uploads/2018/01/img_5a509eed56b24.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/fqBKCGAKHmA?si=OkoaI17nE5qNqTHj&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  2) In the **[Free Version](https://tools.techidaily.com/drivereasy/download/)**  , Driver Easy will show you the latest display driver you’ll need to install. You can update the drivers one by one using the **Update**  button. But if you upgrade to the **[PRO Version](https://tools.techidaily.com/drivereasy/download/)**  , you can update all your drivers with one click — **Update All** .
 
@@ -136,20 +116,16 @@ Follow these steps to recover your system files:
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-lab.techidaily.com/teering-clear-of-the-8-most-frequent-pitfalls-for-first-time-youtubers-for-2024/"><u>[New] Steering Clear of the 8 Most Frequent Pitfalls for First-Time YouTubers for 2024</u></a></li>
-<li><a href="https://article-helps.techidaily.com/updated-cataloging-tiktok-scenes-as-backgrounds/"><u>[Updated] Cataloging TikTok Scenes as Backgrounds</u></a></li>
-<li><a href="https://instagram-video-files.techidaily.com/updated-in-2024-dynamic-duo-combining-multiple-photos-for-impactful-stories/"><u>[Updated] In 2024, Dynamic Duo Combining Multiple Photos for Impactful Stories</u></a></li>
-<li><a href="https://youtube-help.techidaily.com/how-to-step-into-virtual-entertainment-and-gain-notoriety-for-2024/"><u>How to Step Into Virtual Entertainment and Gain Notoriety for 2024</u></a></li>
-<li><a href="https://snapchat-videos.techidaily.com/in-2024-altering-snapchat-audio-a-dual-approach-explained/"><u>In 2024, Altering Snapchat Audio A Dual Approach Explained</u></a></li>
-<li><a href="https://fox-access.techidaily.com/mastering-tiktok-video-enhancement-with-zoom/"><u>Mastering TikTok Video Enhancement with Zoom</u></a></li>
-<li><a href="https://technical-tips.techidaily.com/navigating-parenting-in-the-digital-age-our-picks-for-best-control-apps-and-services-of-2024/"><u>Navigating Parenting in the Digital Age: Our Picks for Best Control Apps and Services of 2024</u></a></li>
-<li><a href="https://ai-topics.techidaily.com/new-5-best-realistic-text-to-speech-ai-voice-generators-you-may-like-for-2024/"><u>New 5 Best Realistic Text to Speech AI Voice Generators You May Like for 2024</u></a></li>
-<li><a href="https://ai-topics.techidaily.com/new-guide-on-how-to-enable-the-text-to-speech-function-on-iphone-for-2024/"><u>New Guide on How to Enable the Text to Speech Function on iPhone for 2024</u></a></li>
-<li><a href="https://ai-topics.techidaily.com/new-narakeet-review-text-to-speech-convenient-voice-maker-for-2024/"><u>New Narakeet Review Text to Speech Convenient Voice Maker for 2024</u></a></li>
-<li><a href="https://tech-recovery.techidaily.com/the-ultimate-list-10-proven-methods-to-achieve-viral-fame-on-instagram/"><u>The Ultimate List: 10 Proven Methods to Achieve Viral Fame on Instagram</u></a></li>
-<li><a href="https://ai-topics.techidaily.com/updated-2024-approved-demystifying-ai-game-generators/"><u>Updated 2024 Approved Demystifying AI Game Generators</u></a></li>
-<li><a href="https://ai-topics.techidaily.com/updated-2024-approved-exploring-ai-face-generators/"><u>Updated 2024 Approved Exploring AI Face Generators</u></a></li>
-<li><a href="https://ai-topics.techidaily.com/updated-essential-tools-for-creating-dynamic-talking-avatars/"><u>Updated Essential Tools for Creating Dynamic Talking Avatars</u></a></li>
-<li><a href="https://ai-topics.techidaily.com/updated-in-2024-how-to-make-a-talking-ai-avatar-from-photos-easy-guide/"><u>Updated In 2024, How to Make a Talking AI Avatar From Photos Easy Guide</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/new-seamless-sync-tweets-as-videos-on-whatsapp-for-2024/"><u>[New] Seamless Sync Tweets as Videos on WhatsApp for 2024</u></a></li>
+<li><a href="https://video-capture.techidaily.com/updated-2024-approved-game-genre-matchups-titles-alike-to-gta-v/"><u>[Updated] 2024 Approved Game Genre Matchups Titles Alike to GTA V</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/facilitating-tiktok-videos-transmission-to-facebook-friends/"><u>Facilitating TikTok Videos' Transmission to Facebook Friends</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/in-2024-fascinating-film-categories-to-lure-viewers/"><u>In 2024, Fascinating Film Categories to Lure Viewers</u></a></li>
+<li><a href="https://bypass-frp.techidaily.com/is-gsm-flasher-adb-legit-full-review-to-bypass-your-vivo-y200-phone-frp-lock-by-drfone-android/"><u>Is GSM Flasher ADB Legit? Full Review To Bypass Your Vivo Y200 Phone FRP Lock</u></a></li>
+<li><a href="https://games-able.techidaily.com/the-evolution-of-gaming-mice-how-razers-deathadder-v3-pro-redefines-an-iconic-era-wired-innovations/"><u>The Evolution of Gaming Mice: How Razer's DeathAdder V3 Pro Redefines an Iconic Era | Wired Innovations</u></a></li>
+<li><a href="https://buynow-help.techidaily.com/the-ultimate-evaluation-of-the-oneplus-nord-n10-5g-device-definitely-worth-your-attention/"><u>The Ultimate Evaluation of the OnePlus Nord N10 5G Device – Definitely Worth Your Attention</u></a></li>
+<li><a href="https://ai-topics.techidaily.com/tips-for-perfecting-your-talking-face-content-a-complete-guide-for-2024/"><u>Tips for Perfecting Your Talking Face Content A Complete Guide for 2024</u></a></li>
+<li><a href="https://ai-topics.techidaily.com/updated-2024-approved-top-list-best-5-tools-for-creating-talking-avatars/"><u>Updated 2024 Approved Top List Best 5 Tools for Creating Talking Avatars</u></a></li>
+<li><a href="https://ai-topics.techidaily.com/updated-the-power-of-ai-thumbnail-generators/"><u>Updated The Power of AI Thumbnail Generators</u></a></li>
+<li><a href="https://ai-topics.techidaily.com/updated-the-top-10-ai-avatar-generators/"><u>Updated The Top 10 AI Avatar Generators</u></a></li>
 </ul></div>
 
