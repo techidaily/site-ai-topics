@@ -1,7 +1,7 @@
 ---
 title: "From Vintage Inspiration to Modern Creation: Building an Authentic Clone of the Classic 1986 Macintosh+"
-date: 2024-11-21T17:09:33.112Z
-updated: 2024-11-23T23:05:37.546Z
+date: 2024-11-28T22:46:41.928Z
+updated: 2024-12-02T01:05:48.789Z
 tags:
   - desktop
 categories:
@@ -32,7 +32,7 @@ The 2024 World Server Throwing Championship (WSTC) organizers are[calling for en
  We think there is plenty of room for improvement on the 2022 winning throw. Remember, the world record distance for throwing a 16-pound shot put is nearly 75 feet. For another comparison, in the Swedish sport of Stångstörtning, a roughly 57-pound log is tossed, with the world record distance being 32 feet. Much will depend on how well-tuned and trained the WSTC 2024 athletes are…
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/qmQjRcnaq9g?si=jadcGtXemUAlKOTa&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/it8VkxDUdAc?si=ef6VZWR7kW4P9ikh" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Stay On the Cutting Edge: Get the Tom's Hardware Newsletter
@@ -60,19 +60,14 @@ The 2024 World Server Throwing Championship (WSTC) organizers are[calling for en
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-data.techidaily.com/n-2024-elevate-your-channel-techniques-for-logo-insertion-in-videos/"><u>[New] In 2024, Elevate Your Channel Techniques for Logo Insertion in Videos</u></a></li>
-<li><a href="https://screen-sharing-recording.techidaily.com/updated-in-2024-securing-your-games-with-diverse-screen-capture-options/"><u>[Updated] In 2024, Securing Your Games with Diverse Screen Capture Options</u></a></li>
-<li><a href="https://screen-video-capture.techidaily.com/2024-approved-connecting-to-google-meet-laptop-plus-mobile/"><u>2024 Approved Connecting to Google Meet Laptop + Mobile</u></a></li>
-<li><a href="https://ai-topics.techidaily.com/2024-approved-easy-steps-to-create-talking-memoji-on-iphone-free/"><u>2024 Approved Easy Steps To Create Talking Memoji on iPhone Free</u></a></li>
-<li><a href="https://youtube-help.techidaily.com/2024-approved-solving-shorts-thumbnail-absence-on-youtube/"><u>2024 Approved Solving Shorts Thumbnail Absence on YouTube</u></a></li>
-<li><a href="https://vp-tips.techidaily.com/crafting-character-adventures-windows-movie-maker-for-animators-for-2024/"><u>Crafting Character Adventures Windows Movie Maker for Animators for 2024</u></a></li>
-<li><a href="https://ai-topics.techidaily.com/finest-text-to-speech-male-voice-tools-for-natural-output/"><u>Finest Text-to-Speech Male Voice Tools for Natural Output</u></a></li>
-<li><a href="https://ai-topics.techidaily.com/in-2024-guide-to-generating-speech-in-different-languages-with-the-best-tools/"><u>In 2024, Guide to Generating Speech in Different Languages With the Best Tools</u></a></li>
-<li><a href="https://iphone-unlock.techidaily.com/in-2024-how-to-unlock-apple-iphone-11-passcode-without-itunes-without-knowing-passcode-drfone-by-drfone-ios/"><u>In 2024, How to Unlock Apple iPhone 11 Passcode without iTunes without Knowing Passcode? | Dr.fone</u></a></li>
-<li><a href="https://android-pokemon-go.techidaily.com/in-2024-what-legendaries-are-in-pokemon-platinum-on-lava-blaze-curve-5g-drfone-by-drfone-virtual-android/"><u>In 2024, What Legendaries Are In Pokemon Platinum On Lava Blaze Curve 5G? | Dr.fone</u></a></li>
-<li><a href="https://ai-topics.techidaily.com/new-2024-approved-new-essential-details-of-making-perfect-talking-face/"><u>New 2024 Approved New Essential Details of Making Perfect Talking Face</u></a></li>
-<li><a href="https://ai-topics.techidaily.com/new-2024-approved-what-is-ai-generated-text/"><u>New 2024 Approved What Is AI Generated Text?</u></a></li>
-<li><a href="https://ai-topics.techidaily.com/new-in-2024-waht-is-ai-pixel-art-generator/"><u>New In 2024, Waht Is AI Pixel Art Generator?</u></a></li>
-<li><a href="https://some-knowledge.techidaily.com/windows-macos-mkv-mp4-2024/"><u>Windows / macOS 及網路版 MKV-MP4 格式變更器 - 2024 年度推荐之選</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/updated-top-8-virtual-spaces-for-3d-graffiti-fonts-for-2024/"><u>[Updated] Top 8 Virtual Spaces for 3D Graffiti Fonts for 2024</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/2024-approved-luts-guide-to-professional-movie-coloring/"><u>2024 Approved Luts Guide to Professional Movie Coloring</u></a></li>
+<li><a href="https://ai-topics.techidaily.com/make-your-pictures-speak-online-with-the-best-tools-recommended/"><u>Make Your Pictures Speak Online With the Best Tools Recommended</u></a></li>
+<li><a href="https://some-tips.techidaily.com/mastering-low-volume-settings-in-os-xwindows-for-2024/"><u>Mastering Low-Volume Settings in OS X/Windows for 2024</u></a></li>
+<li><a href="https://ai-topics.techidaily.com/new-easy-guide-how-to-make-talking-head-videos/"><u>New Easy Guide How To Make Talking Head Videos</u></a></li>
+<li><a href="https://ai-topics.techidaily.com/new-how-to-enable-the-text-to-speech-function-on-iphone/"><u>New How to Enable the Text to Speech Function on iPhone</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/safe-ways-to-download-and-convert-youtubes-audios-as-mp3-for-2024/"><u>Safe Ways to Download and Convert YouTube's Audios as MP3 for 2024</u></a></li>
+<li><a href="https://ai-topics.techidaily.com/top-5-best-tools-to-convert-text-to-audio-online-for-free/"><u>Top 5 Best Tools to Convert Text to Audio Online for Free</u></a></li>
+<li><a href="https://buynow-help.techidaily.com/top-discounted-offers-on-oneplus-during-prime-day-bonanza/"><u>Top Discounted Offers on OnePlus During Prime Day Bonanza</u></a></li>
 </ul></div>
 

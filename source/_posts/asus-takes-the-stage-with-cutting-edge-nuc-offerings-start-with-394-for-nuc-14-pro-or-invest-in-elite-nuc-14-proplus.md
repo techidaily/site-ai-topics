@@ -1,7 +1,7 @@
 ---
 title: Asus Takes the Stage with Cutting-Edge NUC Offerings - Start with $394 for NUC 14 Pro, or Invest in Elite NUC 14 Pro+
-date: 2024-11-19T17:37:18.557Z
-updated: 2024-11-23T16:42:15.789Z
+date: 2024-11-27T23:09:54.773Z
+updated: 2024-12-02T02:00:05.823Z
 tags:
   - desktop
 categories:
@@ -32,7 +32,7 @@ The 2024 World Server Throwing Championship (WSTC) organizers are[calling for en
  We think there is plenty of room for improvement on the 2022 winning throw. Remember, the world record distance for throwing a 16-pound shot put is nearly 75 feet. For another comparison, in the Swedish sport of Stångstörtning, a roughly 57-pound log is tossed, with the world record distance being 32 feet. Much will depend on how well-tuned and trained the WSTC 2024 athletes are…
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/2Iv3DjT2Fyw?si=pR_z8ZDDVGF2MvKJ&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/d-COuhPT5mk?si=wLZU6jkkAdJuAn6h" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Stay On the Cutting Edge: Get the Tom's Hardware Newsletter
@@ -60,24 +60,22 @@ The 2024 World Server Throwing Championship (WSTC) organizers are[calling for en
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://vimeo-videos.techidaily.com/updated-2024-approved-spur-the-playback-of-vimeo-media/"><u>[Updated] 2024 Approved Spur the Playback of Vimeo Media</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/updated-in-2024-the-symphony-of-well-being-learn-from-asmr/"><u>[Updated] In 2024, The Symphony of Well-Being – Learn From ASMR</u></a></li>
-<li><a href="https://win11-tips.techidaily.com/addressing-screen-failure-during-boot-up-in-windows-11/"><u>Addressing Screen Failure During Boot-Up in Windows 11</u></a></li>
-<li><a href="https://win-great.techidaily.com/affordable-microsoft-project-and-visio-professional-licenses-on-sale-just-20-at-zdnet/"><u>Affordable Microsoft Project & Visio Professional Licenses on Sale - Just $20 at ZDNet!</u></a></li>
-<li><a href="https://ai-topics.techidaily.com/best-6-celebrity-text-to-speech-ai-voice-generators-you-may-like/"><u>Best 6 Celebrity Text to Speech AI Voice Generators You May Like</u></a></li>
-<li><a href="https://fox-http.techidaily.com/earn-big-with-little-experience-discover-the-top-13-reddit-money-ways-for-2024/"><u>Earn Big with Little Experience - Discover the Top 13 Reddit Money Ways for 2024</u></a></li>
-<li><a href="https://ai-topics.techidaily.com/exploring-the-magic-of-ai-selfie-generators-for-2024/"><u>Exploring the Magic of AI Selfie Generators for 2024</u></a></li>
-<li><a href="https://ai-topics.techidaily.com/how-to-make-your-memoji-talk-get-creative-with-your-messaging/"><u>How To Make Your Memoji Talk? Get Creative With Your Messaging</u></a></li>
-<li><a href="https://pokemon-go-android.techidaily.com/in-2024-how-to-use-ispoofer-on-realme-c67-5g-drfone-by-drfone-virtual-android/"><u>In 2024, How to use iSpoofer on Realme C67 5G? | Dr.fone</u></a></li>
-<li><a href="https://ai-topics.techidaily.com/in-depth-review-of-ivona-text-to-speech-by-nextup-technologies/"><u>In-Depth Review of Ivona Text to Speech by NextUp Technologies</u></a></li>
-<li><a href="https://common-error.techidaily.com/mastering-the-fix-for-event-id-1000-across-different-generations-of-windows-os/"><u>Mastering the Fix for Event ID 1000 Across Different Generations of Windows OS</u></a></li>
-<li><a href="https://ai-topics.techidaily.com/new-2024-approved-ready-to-dive-into-photo-talking-videos-heres-what-you-need-to-know/"><u>New 2024 Approved Ready To Dive Into Photo Talking Videos? Heres What You Need To Know</u></a></li>
-<li><a href="https://ai-topics.techidaily.com/new-what-is-ai-voice-over-for-2024/"><u>New What Is AI Voice Over for 2024</u></a></li>
-<li><a href="https://ai-topics.techidaily.com/new-what-is-an-ai-video-editor-for-2024/"><u>New What Is an AI Video Editor for 2024</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/the-apple-imac-215-inch-4k-monitor-an-impeccable-mix-of-beauty-and-strength-examined-in-this-comprehensive-review/"><u>The Apple iMac 21.5-Inch 4K Monitor - An Impeccable Mix of Beauty and Strength Examined in This Comprehensive Review</u></a></li>
-<li><a href="https://extra-hints.techidaily.com/ultimate-directory-easy-classics-ringtone-websites/"><u>Ultimate Directory Easy Classics Ringtone Websites</u></a></li>
-<li><a href="https://ai-topics.techidaily.com/what-is-an-ai-text-generator-for-2024/"><u>What Is an AI Text Generator for 2024</u></a></li>
-<li><a href="https://ai-topics.techidaily.com/what-is-an-ai-video-generator-for-2024/"><u>What Is an AI Video Generator for 2024</u></a></li>
-<li><a href="https://win-wonderful.techidaily.com/windows-10-disk-management-guide-retrieving-and-restoring-corruptedmissing-partitions/"><u>Windows 10 Disk Management Guide: Retrieving and Restoring Corrupted/Missing Partitions</u></a></li>
+<li><a href="https://fox-hovers.techidaily.com/new-top-30-metaverse-gems-diy-meme-ideas-unleashed/"><u>[New] Top 30 Metaverse Gems DIY Meme Ideas Unleashed</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/updated-fundamentals-of-digital-tale-construction/"><u>[Updated] Fundamentals of Digital Tale Construction</u></a></li>
+<li><a href="https://fox-access.techidaily.com/updated-in-2024-3dr-the-soloists-voyage-in-3d-printing-tech/"><u>[Updated] In 2024, '3DR' The Soloist’s Voyage in 3D Printing Tech</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-the-essential-guide-to-youtube-edits-with-premiere-pro-for-2024/"><u>[Updated] The Essential Guide to YouTube Edits with Premiere Pro for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-the-finest-10-yoga-streams-for-peak-fitness-performance/"><u>[Updated] The Finest 10 Yoga Streams for Peak Fitness Performance</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/how-to-expertly-use-vscos-adjustment-brushes/"><u>How to Expertly Use VSCO's Adjustment Brushes</u></a></li>
+<li><a href="https://change-location.techidaily.com/in-2024-apply-these-techniques-to-improve-how-to-detect-fake-gps-location-on-nubia-red-magic-9-pro-drfone-by-drfone-virtual-android/"><u>In 2024, Apply These Techniques to Improve How to Detect Fake GPS Location On Nubia Red Magic 9 Pro | Dr.fone</u></a></li>
+<li><a href="https://ai-topics.techidaily.com/in-2024-what-is-an-ai-presentation-maker/"><u>In 2024, What Is an AI Presentation Maker?</u></a></li>
+<li><a href="https://ai-topics.techidaily.com/in-depth-review-of-ivona-text-to-speech-converter/"><u>In-Depth Review of Ivona Text to Speech Converter</u></a></li>
+<li><a href="https://win-answers.techidaily.com/is-the-4k-video-downloader-secure-and-reliable/"><u>Is the 4K Video Downloader Secure and Reliable?</u></a></li>
+<li><a href="https://video-content-creator.techidaily.com/new-free-video-editing-software-with-split-screen-capability-online-and-offline-for-2024/"><u>New Free Video Editing Software with Split Screen Capability Online & Offline for 2024</u></a></li>
+<li><a href="https://ai-topics.techidaily.com/updated-ai-portrait-generator-getting-closer-to-the-artistic-marvels/"><u>Updated AI Portrait Generator Getting Closer to the Artistic Marvels</u></a></li>
+<li><a href="https://ai-topics.techidaily.com/updated-in-2024-get-closer-to-the-artistic-marvels-of-ai-portrait-generator/"><u>Updated In 2024, Get Closer to the Artistic Marvels of AI Portrait Generator</u></a></li>
+<li><a href="https://ai-topics.techidaily.com/updated-in-2024-what-is-ai-text-to-video/"><u>Updated In 2024, What Is AI Text to Video?</u></a></li>
+<li><a href="https://ai-topics.techidaily.com/updated-what-is-an-ai-tool-in-2024/"><u>Updated What Is an AI Tool, In 2024</u></a></li>
+<li><a href="https://ai-topics.techidaily.com/updated-what-is-an-ai-video-editor-in-2024/"><u>Updated What Is an AI Video Editor, In 2024</u></a></li>
+<li><a href="https://ai-topics.techidaily.com/what-is-an-ai-video-editor/"><u>What Is an AI Video Editor?</u></a></li>
 </ul></div>
 
