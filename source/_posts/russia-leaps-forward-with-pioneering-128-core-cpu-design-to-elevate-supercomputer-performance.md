@@ -1,7 +1,7 @@
 ---
 title: Russia Leaps Forward with Pioneering 128-Core CPU Design to Elevate Supercomputer Performance
-date: 2024-11-28T22:19:27.650Z
-updated: 2024-12-02T01:28:08.782Z
+date: 2024-12-03T17:42:14.490Z
+updated: 2024-12-09T19:06:33.898Z
 tags:
   - desktop
 categories:
@@ -117,23 +117,21 @@ _**Storage:**_   _2TB M.2 NVMe SSD_
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-record-videos.techidaily.com/new-best-youtube-beginnings-15-editing-samples-for-2024/"><u>[New] Best YouTube Beginnings 15 Editing Samples for 2024</u></a></li>
-<li><a href="https://facebook-clips.techidaily.com/updated-2024-approved-unlock-your-profile-the-quick-fix-hacks/"><u>[Updated] 2024 Approved Unlock Your Profile The Quick Fix Hacks</u></a></li>
-<li><a href="https://ai-topics.techidaily.com/2024-approved-what-is-ai-api/"><u>2024 Approved What Is AI API?</u></a></li>
-<li><a href="https://tech-revival.techidaily.com/decoding-ai-vulnerabilities-the-ins-and-outs-of-prompt-injection-tactics/"><u>Decoding AI Vulnerabilities - The Ins and Outs of Prompt Injection Tactics</u></a></li>
-<li><a href="https://ios-location-track.techidaily.com/in-2024-how-to-track-apple-iphone-14-plus-by-phone-number-drfone-by-drfone-virtual-ios/"><u>In 2024, How to Track Apple iPhone 14 Plus by Phone Number | Dr.fone</u></a></li>
-<li><a href="https://ai-topics.techidaily.com/new-2024-approved-users-guide-how-to-create-photo-talking-videos-with-the-best-tools/"><u>New 2024 Approved Users Guide How To Create Photo Talking Videos With the Best Tools?</u></a></li>
-<li><a href="https://ai-video-apps.techidaily.com/new-best-subtitle-editing-tools-for-mac-a-comprehensive-list-of-alternatives-for-2024/"><u>New Best Subtitle Editing Tools for Mac A Comprehensive List of Alternatives for 2024</u></a></li>
-<li><a href="https://ai-topics.techidaily.com/new-new-essential-details-of-making-perfect-talking-face/"><u>New New Essential Details of Making Perfect Talking Face</u></a></li>
-<li><a href="https://ai-topics.techidaily.com/new-what-are-ai-tools-in-2024/"><u>New What Are AI Tools, In 2024</u></a></li>
-<li><a href="https://ai-topics.techidaily.com/new-what-is-an-ai-script-generator-in-2024/"><u>New What Is an AI Script Generator, In 2024</u></a></li>
-<li><a href="https://data-safeguard.techidaily.com/optimize-with-cookiebot-the-future-of-personalized-user-engagement/"><u>Optimize with Cookiebot: The Future of Personalized User Engagement</u></a></li>
-<li><a href="https://windows11.techidaily.com/overcoming-error-0x80070194-on-windows-onedrive/"><u>Overcoming Error 0X80070194 on Windows' OneDrive</u></a></li>
-<li><a href="https://technical-tips.techidaily.com/top-ranking-tech-giants-comparing-the-finest-machines-in-2e24-by-apple-dell-et-al-featured-on-zdnet/"><u>Top-Ranking Tech Giants - Comparing the Finest Machines in 2E24 by Apple, Dell, Et Al., Featured on ZDNet</u></a></li>
-<li><a href="https://ai-topics.techidaily.com/what-is-an-ai-headshot-generator-in-2024/"><u>What Is an AI Headshot Generator, In 2024</u></a></li>
+<li><a href="https://screen-sharing-recording.techidaily.com/new-inhabit-your-island-minimalistic-mc-house-plans-explained/"><u>[New] Inhabit Your Island Minimalistic MC House Plans Explained</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/nlock-youtubes-potential-key-strategies-from-creator-studio-manual/"><u>[New] Unlock YouTube's Potential Key Strategies From Creator Studio Manual</u></a></li>
+<li><a href="https://fox-http.techidaily.com/updated-masterclass-in-drones-exploring-the-q500-typhoon-for-2024/"><u>[Updated] Masterclass in Drones Exploring the Q500 Typhoon for 2024</u></a></li>
+<li><a href="https://windows11.techidaily.com/addressing-win-1011s-xc0f1103f-with-geforce-error/"><u>Addressing Win 10/11'S XC0F1103F with GeForce Error</u></a></li>
+<li><a href="https://win-blog.techidaily.com/how-to-enable-audio-in-your-discord-screen-sharing-session/"><u>How to Enable Audio in Your Discord Screen Sharing Session</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/in-2024-champions-of-cutting-edge-vr-creation/"><u>In 2024, Champions of Cutting-Edge VR Creation</u></a></li>
+<li><a href="https://ai-topics.techidaily.com/new-what-is-ai-advertising-for-2024/"><u>New What Is AI Advertising for 2024</u></a></li>
+<li><a href="https://win11-tips.techidaily.com/quick-fixes-for-opengl-errors-targeting-code-3-in-win11/"><u>Quick Fixes for OpenGL Errors: Targeting Code #3 in Win11</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/sparring-spirits-versus-social-media-savvy-for-2024/"><u>Sparring Spirits Versus Social Media Savvy for 2024</u></a></li>
+<li><a href="https://ai-topics.techidaily.com/updated-how-to-create-funny-talking-avatars-using-oddcast-text-to-speech-for-2024/"><u>Updated How to Create Funny Talking Avatars Using Oddcast Text to Speech for 2024</u></a></li>
+<li><a href="https://ai-topics.techidaily.com/updated-in-2024-top-10-talking-photo-online-tools-you-have-to-try/"><u>Updated In 2024, Top 10 Talking Photo Online Tools You Have To Try</u></a></li>
+<li><a href="https://ai-topics.techidaily.com/updated-what-is-an-ai-headshot-generator-in-2024/"><u>Updated What Is an AI Headshot Generator, In 2024</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Nyp7-xVwqHA?si=XCuZbpKLFIdrGQQh" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/8U3ooyFiAB4?si=yXPQrDhMBEJwN2EZ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 

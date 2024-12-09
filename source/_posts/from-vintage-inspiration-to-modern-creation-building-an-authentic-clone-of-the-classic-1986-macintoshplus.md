@@ -1,7 +1,7 @@
 ---
 title: "From Vintage Inspiration to Modern Creation: Building an Authentic Clone of the Classic 1986 Macintosh+"
-date: 2024-11-28T22:46:41.928Z
-updated: 2024-12-02T01:05:48.789Z
+date: 2024-12-02T18:48:05.116Z
+updated: 2024-12-09T17:58:45.226Z
 tags:
   - desktop
 categories:
@@ -32,7 +32,7 @@ The 2024 World Server Throwing Championship (WSTC) organizers are[calling for en
  We think there is plenty of room for improvement on the 2022 winning throw. Remember, the world record distance for throwing a 16-pound shot put is nearly 75 feet. For another comparison, in the Swedish sport of Stångstörtning, a roughly 57-pound log is tossed, with the world record distance being 32 feet. Much will depend on how well-tuned and trained the WSTC 2024 athletes are…
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/it8VkxDUdAc?si=ef6VZWR7kW4P9ikh" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Jng92DT1n_Y?si=EdMRoNAFi0Q6mP7G" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Stay On the Cutting Edge: Get the Tom's Hardware Newsletter
@@ -60,14 +60,16 @@ The 2024 World Server Throwing Championship (WSTC) organizers are[calling for en
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-boxes.techidaily.com/updated-top-8-virtual-spaces-for-3d-graffiti-fonts-for-2024/"><u>[Updated] Top 8 Virtual Spaces for 3D Graffiti Fonts for 2024</u></a></li>
-<li><a href="https://extra-skills.techidaily.com/2024-approved-luts-guide-to-professional-movie-coloring/"><u>2024 Approved Luts Guide to Professional Movie Coloring</u></a></li>
-<li><a href="https://ai-topics.techidaily.com/make-your-pictures-speak-online-with-the-best-tools-recommended/"><u>Make Your Pictures Speak Online With the Best Tools Recommended</u></a></li>
-<li><a href="https://some-tips.techidaily.com/mastering-low-volume-settings-in-os-xwindows-for-2024/"><u>Mastering Low-Volume Settings in OS X/Windows for 2024</u></a></li>
-<li><a href="https://ai-topics.techidaily.com/new-easy-guide-how-to-make-talking-head-videos/"><u>New Easy Guide How To Make Talking Head Videos</u></a></li>
-<li><a href="https://ai-topics.techidaily.com/new-how-to-enable-the-text-to-speech-function-on-iphone/"><u>New How to Enable the Text to Speech Function on iPhone</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/safe-ways-to-download-and-convert-youtubes-audios-as-mp3-for-2024/"><u>Safe Ways to Download and Convert YouTube's Audios as MP3 for 2024</u></a></li>
-<li><a href="https://ai-topics.techidaily.com/top-5-best-tools-to-convert-text-to-audio-online-for-free/"><u>Top 5 Best Tools to Convert Text to Audio Online for Free</u></a></li>
-<li><a href="https://buynow-help.techidaily.com/top-discounted-offers-on-oneplus-during-prime-day-bonanza/"><u>Top Discounted Offers on OnePlus During Prime Day Bonanza</u></a></li>
+<li><a href="https://vimeo-videos.techidaily.com/new-in-2024-mastering-fast-forward-on-vimeo/"><u>[New] In 2024, Mastering Fast-Forward on Vimeo</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/new-ownership-guidelines-for-instagram-music/"><u>[New] Ownership Guidelines for Instagram Music</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/updated-cutting-edge-accessories-for-virtual-worlds-for-2024/"><u>[Updated] Cutting-Edge Accessories for Virtual Worlds for 2024</u></a></li>
+<li><a href="https://desktop-recording.techidaily.com/updated-evaluating-rival-tools-to-superior-sharex-for-2024/"><u>[Updated] Evaluating Rival Tools to Superior ShareX for 2024</u></a></li>
+<li><a href="https://ai-topics.techidaily.com/2024-approved-what-is-ai-text-to-video/"><u>2024 Approved What Is AI Text to Video?</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/cookiebot-driven-customization-enhancing-user-experience-with-personalized-content/"><u>Cookiebot-Driven Customization: Enhancing User Experience with Personalized Content</u></a></li>
+<li><a href="https://howto.techidaily.com/fix-app-not-available-in-your-country-play-store-problem-on-realme-gt-3-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Fix App Not Available in Your Country Play Store Problem on Realme GT 3 | Dr.fone</u></a></li>
+<li><a href="https://ai-topics.techidaily.com/in-2024-the-most-recommended-natural-ai-hindi-voice-generator/"><u>In 2024, The Most Recommended Natural AI Hindi Voice Generator</u></a></li>
+<li><a href="https://ai-topics.techidaily.com/new-how-to-define-ai-video-in-2024/"><u>New How to Define AI Video, In 2024</u></a></li>
+<li><a href="https://ai-topics.techidaily.com/new-what-is-ai-voice-text-to-speech-for-2024/"><u>New What Is AI Voice Text to Speech for 2024</u></a></li>
+<li><a href="https://ai-topics.techidaily.com/updated-breakthrough-how-to-make-a-picture-speak-for-2024/"><u>Updated Breakthrough How to Make A Picture Speak for 2024</u></a></li>
 </ul></div>
 

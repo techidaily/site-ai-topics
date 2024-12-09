@@ -1,7 +1,7 @@
 ---
 title: "Strategic Expansion: China's Plan to Enhance State Supercomputing Power by 30%%, Achieve 300 Exaflops in Half a Decade"
-date: 2024-11-25T18:23:26.347Z
-updated: 2024-12-01T19:15:28.405Z
+date: 2024-12-03T18:57:02.157Z
+updated: 2024-12-09T17:18:21.554Z
 tags:
   - desktop
 categories:
@@ -14,7 +14,7 @@ thumbnail: https://thmb.techidaily.com/a42282b650e186f3549f7d2aa960eb18debb612fb
 [Hewlett Packard](https://www.tomshardware.com/tag/hewlett-packard) [Enterprise](https://www.tomshardware.com/tag/enterprise) (HPE), one of the world's largest makers of servers, has initiated a legal battle against Inspur Group, China's largest server maker, and its affiliates, alleging server patent infringements. HPE accuses Inspur of engaging in deceptive practices and renaming its subsidiaries in the U.S. to continue its business with American companies despite being included into the Entity List.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/szUqw4TLvWs?si=srv1OeLOe579gLwj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/mK1lEBRm_1w?si=FSaM0OKO0XBCgjtT" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## HPE: Inspur infringes our patents
@@ -28,7 +28,7 @@ thumbnail: https://thmb.techidaily.com/a42282b650e186f3549f7d2aa960eb18debb612fb
  LATEST VIDEOS FROM tomshardware Tom's Hardware
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/pGHmqD53gc8?si=ymgHIB6Aa7_MoUUf" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/iOVkXoUxLf4?si=QfC18T2cb5OkiaXo" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Despite being on the Entity List, Inspur continues operations in the U.S
@@ -38,7 +38,7 @@ thumbnail: https://thmb.techidaily.com/a42282b650e186f3549f7d2aa960eb18debb612fb
  The complaint claims that Inspur that inspur continues its operations in the United States under Aivres Systems and Betapex. Inspur allegedly removed its branding from products sold in the U.S. and continues to sell them. For example, Inspur's IR5280M6 server is Aivres's 5280M6 machine, it has the same specification and design, according to HPE's complaint. Meanwhile, Inspur has also worked as a contract maker of servers, according to The Register. Yet, if a U.S. entity plans to work with Inspur (or any other party from the Entity List), it has to get a special license from the U.S. government.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/YezPJZzPJ8Q?si=xF1t4BQHFquzvnzE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/GU08CQVsZz0?si=V-SvPfzRsQysMS0e" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Stay On the Cutting Edge: Get the Tom's Hardware Newsletter
@@ -64,15 +64,20 @@ thumbnail: https://thmb.techidaily.com/a42282b650e186f3549f7d2aa960eb18debb612fb
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-data.techidaily.com/ed-bridging-the-gap-integrating-spotify-and-youtube-music-playlists/"><u>[Updated] Bridging the Gap Integrating Spotify and YouTube Music Playlists</u></a></li>
-<li><a href="https://windows11.techidaily.com/5-methods-how-win11-harvests-personal-info/"><u>5 Methods: How Win11 Harvests Personal Info</u></a></li>
-<li><a href="https://article-posts.techidaily.com/comedic-content-coder-for-2024/"><u>Comedic Content Coder for 2024</u></a></li>
-<li><a href="https://hardware-tips.techidaily.com/early-bird-savings-alert-find-your-new-favorite-samsung-t5-ssd-for-less-than-50-off-before-octobers-prime-day-spotlight/"><u>Early Bird Savings Alert: Find Your New Favorite Samsung T5 SSD for Less than 50% Off Before October's Prime Day | Spotlight</u></a></li>
-<li><a href="https://ai-topics.techidaily.com/in-2024-finest-text-to-speech-male-voice-tools-for-natural-output/"><u>In 2024, Finest Text-to-Speech Male Voice Tools for Natural Output</u></a></li>
-<li><a href="https://ai-topics.techidaily.com/in-2024-what-are-ai-tools/"><u>In 2024, What Are AI Tools?</u></a></li>
-<li><a href="https://ai-topics.techidaily.com/new-what-is-ai-pixel-art-generator-in-2024/"><u>New What Is AI Pixel Art Generator, In 2024</u></a></li>
-<li><a href="https://win-howtos.techidaily.com/no-sound-from-my-acer-try-these-pro-tricks-for-audio-recovery/"><u>No Sound From My Acer? Try These Pro Tricks for Audio Recovery</u></a></li>
-<li><a href="https://ai-topics.techidaily.com/the-recommended-natural-ai-hindi-voice-generator/"><u>The Recommended Natural AI Hindi Voice Generator</u></a></li>
-<li><a href="https://tech-haven.techidaily.com/understanding-manners-is-it-necessary-to-address-ai-entities-such-as-chatgpt-alexa-and-siri-politely/"><u>Understanding Manners: Is It Necessary to Address AI Entities Such as ChatGPT, Alexa & Siri Politely?</u></a></li>
+<li><a href="https://driver-install.techidaily.com/fixed-conexant-hd-audio-compatibility-in-windows-os/"><u>[Fixed]: Conexant HD Audio Compatibility in Windows OS</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/new-2024-approved-cutting-edge-editors-elevating-online-videos/"><u>[New] 2024 Approved Cutting-Edge Editors Elevating Online Videos</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/new-expert-advice-on-efficient-webp-images-transition-to-jpeg-for-2024/"><u>[New] Expert Advice on Efficient WebP Images Transition to JPEG for 2024</u></a></li>
+<li><a href="https://article-tips.techidaily.com/updated-2024-approved-synthesize-sounds-and-images-in-ppts/"><u>[Updated] 2024 Approved Synthesize Sounds and Images in PPTS</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/2024-approved-perfectly-pairing-photos-step-by-step-guide/"><u>2024 Approved Perfectly Pairing Photos - Step-by-Step Guide</u></a></li>
+<li><a href="https://ai-topics.techidaily.com/2024-approved-what-is-an-ai-artist/"><u>2024 Approved What Is an AI Artist?</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/how-to-transfer-data-from-poco-x6-to-blackberry-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>How to Transfer Data from Poco X6 to BlackBerry | Dr.fone</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/in-2024-asus-proart-pa-329q-unveiled-a-critical-perspective-on-a-high-end-monitor/"><u>In 2024, Asus ProArt PA 329Q Unveiled A Critical Perspective on a High-End Monitor</u></a></li>
+<li><a href="https://ai-topics.techidaily.com/in-2024-what-is-an-ai-headshot-generator/"><u>In 2024, What Is an AI Headshot Generator?</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/is-earnings-linked-to-product-reviews-in-media-in-2024/"><u>Is Earnings Linked to Product Reviews in Media, In 2024</u></a></li>
+<li><a href="https://ai-topics.techidaily.com/new-design-cartoon-images-with-the-best-tools/"><u>New Design Cartoon Images With the Best Tools</u></a></li>
+<li><a href="https://ai-topics.techidaily.com/new-in-2024-new-essential-details-of-making-perfect-talking-face/"><u>New In 2024, New Essential Details of Making Perfect Talking Face</u></a></li>
+<li><a href="https://ai-topics.techidaily.com/new-what-is-ai-text-to-video-in-2024/"><u>New What Is AI Text to Video, In 2024</u></a></li>
+<li><a href="https://ai-topics.techidaily.com/updated-a-detailed-and-trustworthy-review-of-murfai-ai-text-to-speech-tool/"><u>Updated A Detailed and Trustworthy Review of Murf.ai AI Text-to-Speech Tool</u></a></li>
+<li><a href="https://ai-topics.techidaily.com/updated-in-2024-the-best-english-voice-generator-to-convert-text-into-desired-accent/"><u>Updated In 2024, The Best English Voice Generator To Convert Text Into Desired Accent</u></a></li>
 </ul></div>
 
