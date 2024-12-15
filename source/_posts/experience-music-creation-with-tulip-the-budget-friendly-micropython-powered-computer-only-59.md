@@ -1,7 +1,7 @@
 ---
 title: "Experience Music Creation with Tulip: The Budget-Friendly MicroPython-Powered Computer - Only $59"
-date: 2024-12-07T19:14:46.869Z
-updated: 2024-12-09T18:04:53.237Z
+date: 2024-12-12T16:28:58.657Z
+updated: 2024-12-15T21:41:53.732Z
 tags:
   - desktop
 categories:
@@ -36,7 +36,7 @@ Over on Chinese videosharing platform Bilibili, user 苏打baka uploaded a lengt
  So, what happened? Did the static buildup short out the PC or something? Fortunately, nothing so mundane. Instead, the fan PC was tested at increasingly higher speeds until the[weighty cooler](https://www.tomshardware.com/news/noctua-fanless-cooler-enters-production) was violently flung from the PC in the last moments of the original video. No wonder Sodabaka hid behind a riot shield for much of the video demo.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/LI9nKlbhnw8?si=uUXFVbuEqXtFHHv0" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/X4q6gyaEojM?si=ImdFm6Zsr0azykqV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Stay On the Cutting Edge: Get the Tom's Hardware Newsletter
@@ -62,22 +62,14 @@ Over on Chinese videosharing platform Bilibili, user 苏打baka uploaded a lengt
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://screen-activity-recording.techidaily.com/new-in-2024-zoom-breakout-rooms-for-newcomers-explored/"><u>[New] In 2024, Zoom Breakout Rooms for Newcomers Explored</u></a></li>
-<li><a href="https://remote-screen-capture.techidaily.com/new-maximizing-performance-optimal-settings-for-logitech-webcam-for-2024/"><u>[New] Maximizing Performance Optimal Settings for Logitech Webcam for 2024</u></a></li>
-<li><a href="https://facebook-video-recording.techidaily.com/updated-2024-approved-streamlining-your-ad-engagement-configuring-and-measuring-instream-ads-on-facebook/"><u>[Updated] 2024 Approved Streamlining Your Ad Engagement Configuring & Measuring Instream Ads on Facebook</u></a></li>
-<li><a href="https://ai-topics.techidaily.com/2024-approved-guide-to-generating-speech-in-different-languages-with-the-best-tools/"><u>2024 Approved Guide to Generating Speech in Different Languages With the Best Tools</u></a></li>
-<li><a href="https://some-knowledge.techidaily.com/2024-approved-hilarious-hits-for-iphones/"><u>2024 Approved Hilarious Hits for iPhones</u></a></li>
-<li><a href="https://ai-topics.techidaily.com/2024-approved-the-most-recommended-natural-ai-hindi-voice-generator/"><u>2024 Approved The Most Recommended Natural AI Hindi Voice Generator</u></a></li>
-<li><a href="https://ai-topics.techidaily.com/2024-approved-top-10-talking-photo-online-tools-you-have-to-try/"><u>2024 Approved Top 10 Talking Photo Online Tools You Have To Try</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/-the-quake-optimal-tripod-placement-for-stellar-vlogs-for-2024/"><u>Avoid the Quake Optimal Tripod Placement for Stellar Vlogs for 2024</u></a></li>
-<li><a href="https://blog-min.techidaily.com/how-i-transferred-messages-from-samsung-galaxy-a24-to-iphone-12xs-max-in-seconds-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>How I Transferred Messages from Samsung Galaxy A24 to iPhone 12/XS (Max) in Seconds | Dr.fone</u></a></li>
-<li><a href="https://blog-min.techidaily.com/how-to-restore-missing-photos-files-from-honor-x50-gt-by-fonelab-android-recover-photos/"><u>How To Restore Missing Photos Files from Honor X50 GT.</u></a></li>
-<li><a href="https://video-screen-grab.techidaily.com/in-2024-10-exceptional-educational-sites-a-look-without-udemy/"><u>In 2024, 10 Exceptional Educational Sites A Look without Udemy</u></a></li>
-<li><a href="https://iphone-unlock.techidaily.com/in-2024-remove-device-supervision-from-your-iphone-7-drfone-by-drfone-ios/"><u>In 2024, Remove Device Supervision From your iPhone 7 | Dr.fone</u></a></li>
-<li><a href="https://ai-topics.techidaily.com/new-2024-approved-how-to-enable-the-text-to-speech-function-on-iphone/"><u>New 2024 Approved How to Enable the Text to Speech Function on iPhone</u></a></li>
-<li><a href="https://ai-topics.techidaily.com/new-the-most-efficient-tools-to-convert-text-to-mp3-with-the-best-natural-voices-for-2024/"><u>New The Most Efficient Tools to Convert Text to MP3 With the Best Natural Voices for 2024</u></a></li>
-<li><a href="https://ai-topics.techidaily.com/new-top-10-talking-photo-online-tools-you-have-to-try-for-2024/"><u>New Top 10 Talking Photo Online Tools You Have To Try for 2024</u></a></li>
-<li><a href="https://ai-topics.techidaily.com/updated-2024-approved-what-is-ai-influencer/"><u>Updated 2024 Approved What Is AI Influencer?</u></a></li>
-<li><a href="https://ai-topics.techidaily.com/updated-in-depth-review-of-ivona-text-to-speech-converter-for-2024/"><u>Updated In-Depth Review of Ivona Text to Speech Converter for 2024</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ed-sustainable-strategies-for-securing-over-a-million-viewers-for-2024/"><u>[Updated] Sustainable Strategies for Securing Over a Million Viewers for 2024</u></a></li>
+<li><a href="https://ai-topics.techidaily.com/2024-approved-narakeet-review-convenient-text-to-speech-voice-maker/"><u>2024 Approved Narakeet Review Convenient Text to Speech Voice Maker</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/how-to-get-the-dragon-scale-and-evolution-enabled-pokemon-on-poco-c51-drfone-by-drfone-virtual-android/"><u>How to get the dragon scale and evolution-enabled pokemon On Poco C51? | Dr.fone</u></a></li>
+<li><a href="https://facebook.techidaily.com/todays-steering-group-at-facebook/"><u>Today’s Steering Group at Facebook</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/top-6-retailers-for-high-quality-laptops-on-the-market/"><u>Top 6 Retailers for High-Quality Laptops on the Market</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/transformez-votre-audio-aiff-en-mp3-sans-frais-directement-sur-la-plateforme-de-movavi/"><u>Transformez Votre Audio AIFF en MP3 Sans Frais, Directement Sur La Plateforme De Movavi.</u></a></li>
+<li><a href="https://ai-topics.techidaily.com/updated-in-2024-the-power-of-ai-thumbnail-generators/"><u>Updated In 2024, The Power of AI Thumbnail Generators</u></a></li>
+<li><a href="https://ai-topics.techidaily.com/updated-in-2024-tips-for-perfecting-your-talking-face-content-a-complete-guide/"><u>Updated In 2024, Tips for Perfecting Your Talking Face Content A Complete Guide</u></a></li>
+<li><a href="https://ai-topics.techidaily.com/updated-in-2024-what-is-ai-api/"><u>Updated In 2024, What Is AI API?</u></a></li>
 </ul></div>
 

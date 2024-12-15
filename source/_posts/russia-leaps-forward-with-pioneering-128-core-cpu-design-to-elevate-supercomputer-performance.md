@@ -1,7 +1,7 @@
 ---
 title: Russia Leaps Forward with Pioneering 128-Core CPU Design to Elevate Supercomputer Performance
-date: 2024-12-03T17:42:14.490Z
-updated: 2024-12-09T19:06:33.898Z
+date: 2024-12-09T16:55:11.729Z
+updated: 2024-12-15T19:02:23.984Z
 tags:
   - desktop
 categories:
@@ -117,21 +117,20 @@ _**Storage:**_   _2TB M.2 NVMe SSD_
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://screen-sharing-recording.techidaily.com/new-inhabit-your-island-minimalistic-mc-house-plans-explained/"><u>[New] Inhabit Your Island Minimalistic MC House Plans Explained</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/nlock-youtubes-potential-key-strategies-from-creator-studio-manual/"><u>[New] Unlock YouTube's Potential Key Strategies From Creator Studio Manual</u></a></li>
-<li><a href="https://fox-http.techidaily.com/updated-masterclass-in-drones-exploring-the-q500-typhoon-for-2024/"><u>[Updated] Masterclass in Drones Exploring the Q500 Typhoon for 2024</u></a></li>
-<li><a href="https://windows11.techidaily.com/addressing-win-1011s-xc0f1103f-with-geforce-error/"><u>Addressing Win 10/11'S XC0F1103F with GeForce Error</u></a></li>
-<li><a href="https://win-blog.techidaily.com/how-to-enable-audio-in-your-discord-screen-sharing-session/"><u>How to Enable Audio in Your Discord Screen Sharing Session</u></a></li>
-<li><a href="https://extra-lessons.techidaily.com/in-2024-champions-of-cutting-edge-vr-creation/"><u>In 2024, Champions of Cutting-Edge VR Creation</u></a></li>
-<li><a href="https://ai-topics.techidaily.com/new-what-is-ai-advertising-for-2024/"><u>New What Is AI Advertising for 2024</u></a></li>
-<li><a href="https://win11-tips.techidaily.com/quick-fixes-for-opengl-errors-targeting-code-3-in-win11/"><u>Quick Fixes for OpenGL Errors: Targeting Code #3 in Win11</u></a></li>
-<li><a href="https://extra-skills.techidaily.com/sparring-spirits-versus-social-media-savvy-for-2024/"><u>Sparring Spirits Versus Social Media Savvy for 2024</u></a></li>
-<li><a href="https://ai-topics.techidaily.com/updated-how-to-create-funny-talking-avatars-using-oddcast-text-to-speech-for-2024/"><u>Updated How to Create Funny Talking Avatars Using Oddcast Text to Speech for 2024</u></a></li>
-<li><a href="https://ai-topics.techidaily.com/updated-in-2024-top-10-talking-photo-online-tools-you-have-to-try/"><u>Updated In 2024, Top 10 Talking Photo Online Tools You Have To Try</u></a></li>
-<li><a href="https://ai-topics.techidaily.com/updated-what-is-an-ai-headshot-generator-in-2024/"><u>Updated What Is an AI Headshot Generator, In 2024</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/new-in-2024-instaloops-create-content-that-circulates-and-captivates/"><u>[New] In 2024, InstaLoops Create Content That Circulates & Captivates</u></a></li>
+<li><a href="https://techno-recovery.techidaily.com/achieve-expertise-in-data-management-top-5-strategies-from-zdnet/"><u>Achieve Expertise in Data Management: Top 5 Strategies From ZDNet</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/comprehensive-viber-out-app-assessment-is-it-worth-your-money/"><u>Comprehensive Viber Out App Assessment - Is It Worth Your Money?</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/free-banner-templates-for-youtube-downloads-and-makers/"><u>Free Banner Templates for YouTube Downloads & Makers</u></a></li>
+<li><a href="https://ai-topics.techidaily.com/in-2024-guide-on-how-to-enable-the-text-to-speech-function-on-iphone/"><u>In 2024, Guide on How to Enable the Text to Speech Function on iPhone</u></a></li>
+<li><a href="https://facebook.techidaily.com/metaverse-vs-virtual-reality-exploring-6-diverging-paradigms/"><u>Metaverse Vs. Virtual Reality: Exploring 6 Diverging Paradigms</u></a></li>
+<li><a href="https://ai-topics.techidaily.com/new-2024-approved-exploring-ai-face-generators/"><u>New 2024 Approved Exploring AI Face Generators</u></a></li>
+<li><a href="https://ai-topics.techidaily.com/new-2024-approved-tips-for-perfecting-your-talking-face-content-a-complete-guide/"><u>New 2024 Approved Tips for Perfecting Your Talking Face Content A Complete Guide</u></a></li>
+<li><a href="https://ai-topics.techidaily.com/new-demystifying-ai-game-generators-from-definition-to-distinction-for-2024/"><u>New Demystifying AI Game Generators From Definition to Distinction for 2024</u></a></li>
+<li><a href="https://fox-useful.techidaily.com/run-commands-within-specific-folder-paths-advanced-workflow-setup/"><u>Run Commands Within Specific Folder Paths - Advanced Workflow Setup</u></a></li>
+<li><a href="https://ai-topics.techidaily.com/updated-tips-for-perfecting-your-talking-face-content-a-complete-guide/"><u>Updated Tips for Perfecting Your Talking Face Content A Complete Guide</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/8U3ooyFiAB4?si=yXPQrDhMBEJwN2EZ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/2Iv3DjT2Fyw?si=pR_z8ZDDVGF2MvKJ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 

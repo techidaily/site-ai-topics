@@ -1,7 +1,7 @@
 ---
 title: "From Vintage Inspiration to Modern Creation: Building an Authentic Clone of the Classic 1986 Macintosh+"
-date: 2024-12-02T18:48:05.116Z
-updated: 2024-12-09T17:58:45.226Z
+date: 2024-12-11T22:14:30.712Z
+updated: 2024-12-15T21:01:01.621Z
 tags:
   - desktop
 categories:
@@ -32,7 +32,7 @@ The 2024 World Server Throwing Championship (WSTC) organizers are[calling for en
  We think there is plenty of room for improvement on the 2022 winning throw. Remember, the world record distance for throwing a 16-pound shot put is nearly 75 feet. For another comparison, in the Swedish sport of Stångstörtning, a roughly 57-pound log is tossed, with the world record distance being 32 feet. Much will depend on how well-tuned and trained the WSTC 2024 athletes are…
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Jng92DT1n_Y?si=EdMRoNAFi0Q6mP7G" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Dn-24B6AURY?si=ErES2KWVnintY6h9" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Stay On the Cutting Edge: Get the Tom's Hardware Newsletter
@@ -60,16 +60,18 @@ The 2024 World Server Throwing Championship (WSTC) organizers are[calling for en
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://vimeo-videos.techidaily.com/new-in-2024-mastering-fast-forward-on-vimeo/"><u>[New] In 2024, Mastering Fast-Forward on Vimeo</u></a></li>
-<li><a href="https://instagram-video-files.techidaily.com/new-ownership-guidelines-for-instagram-music/"><u>[New] Ownership Guidelines for Instagram Music</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/updated-cutting-edge-accessories-for-virtual-worlds-for-2024/"><u>[Updated] Cutting-Edge Accessories for Virtual Worlds for 2024</u></a></li>
-<li><a href="https://desktop-recording.techidaily.com/updated-evaluating-rival-tools-to-superior-sharex-for-2024/"><u>[Updated] Evaluating Rival Tools to Superior ShareX for 2024</u></a></li>
-<li><a href="https://ai-topics.techidaily.com/2024-approved-what-is-ai-text-to-video/"><u>2024 Approved What Is AI Text to Video?</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/cookiebot-driven-customization-enhancing-user-experience-with-personalized-content/"><u>Cookiebot-Driven Customization: Enhancing User Experience with Personalized Content</u></a></li>
-<li><a href="https://howto.techidaily.com/fix-app-not-available-in-your-country-play-store-problem-on-realme-gt-3-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Fix App Not Available in Your Country Play Store Problem on Realme GT 3 | Dr.fone</u></a></li>
-<li><a href="https://ai-topics.techidaily.com/in-2024-the-most-recommended-natural-ai-hindi-voice-generator/"><u>In 2024, The Most Recommended Natural AI Hindi Voice Generator</u></a></li>
-<li><a href="https://ai-topics.techidaily.com/new-how-to-define-ai-video-in-2024/"><u>New How to Define AI Video, In 2024</u></a></li>
-<li><a href="https://ai-topics.techidaily.com/new-what-is-ai-voice-text-to-speech-for-2024/"><u>New What Is AI Voice Text to Speech for 2024</u></a></li>
-<li><a href="https://ai-topics.techidaily.com/updated-breakthrough-how-to-make-a-picture-speak-for-2024/"><u>Updated Breakthrough How to Make A Picture Speak for 2024</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/new-free-pics-with-exceptional-resolution-your-ultimate-guide/"><u>[New] Free Pics with Exceptional Resolution Your Ultimate Guide</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/new-sharp-focus-tech-best-4k-camera-phones-of-the-genre-for-2024/"><u>[New] Sharp Focus Tech Best 4K Camera Phones of the Genre for 2024</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210495478-9781647843199-007-the-great-tao-of-spiritual-science-series-07/"><u>生命奧秘全書007：大道靈學探討與研究之機緣（體驗篇）: The Great Tao of Spiritual Science Series 07 | Free Book</u></a></li>
+<li><a href="https://ai-vdieo-software.techidaily.com/animation-mastery-the-best-professional-software-for-macwindows/"><u>Animation Mastery The Best Professional Software for Mac/Windows</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/craft-captivating-content-with-30-video-ideas-for-2024/"><u>Craft Captivating Content with 30 Video Ideas for 2024</u></a></li>
+<li><a href="https://solve-luxury.techidaily.com/gratis-programm-fur-das-klonen-von-datentragern-auf-windows-10-professionelles-migrationstool/"><u>Gratis Programm Für Das Klonen Von Datenträgern Auf Windows 10 - Professionelles Migrationstool</u></a></li>
+<li><a href="https://tech-savvy.techidaily.com/guidelines-for-perfecting-your-gpt-interactions/"><u>Guidelines for Perfecting Your GPT Interactions</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/in-2024-pokemon-go-no-gps-signal-heres-every-possible-solution-on-realme-v30-drfone-by-drfone-virtual-android/"><u>In 2024, Pokemon Go No GPS Signal? Heres Every Possible Solution On Realme V30 | Dr.fone</u></a></li>
+<li><a href="https://ai-topics.techidaily.com/new-essential-tools-for-creating-dynamic-talking-avatars/"><u>New Essential Tools for Creating Dynamic Talking Avatars</u></a></li>
+<li><a href="https://ai-topics.techidaily.com/new-in-2024-what-is-an-ai-editor/"><u>New In 2024, What Is an AI Editor?</u></a></li>
+<li><a href="https://ai-topics.techidaily.com/new-what-is-ai-advertising-in-2024/"><u>New What Is AI Advertising, In 2024</u></a></li>
+<li><a href="https://ai-topics.techidaily.com/top-10-talking-photo-online-tools-you-have-to-try/"><u>Top 10 Talking Photo Online Tools You Have To Try</u></a></li>
+<li><a href="https://fox-that.techidaily.com/unlock-essential-features-and-enhancements-the-critical-need-to-install-ios-153-today/"><u>Unlock Essential Features and Enhancements: The Critical Need to Install iOS 15.3 Today</u></a></li>
 </ul></div>
 
