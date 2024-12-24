@@ -1,7 +1,7 @@
 ---
 title: "Strategic Expansion: China's Plan to Enhance State Supercomputing Power by 30%%, Achieve 300 Exaflops in Half a Decade"
-date: 2024-12-13T18:21:53.225Z
-updated: 2024-12-15T22:21:38.396Z
+date: 2024-12-17T19:30:35.870Z
+updated: 2024-12-24T17:54:29.519Z
 tags:
   - desktop
 categories:
@@ -14,7 +14,7 @@ thumbnail: https://thmb.techidaily.com/a42282b650e186f3549f7d2aa960eb18debb612fb
 [Hewlett Packard](https://www.tomshardware.com/tag/hewlett-packard) [Enterprise](https://www.tomshardware.com/tag/enterprise) (HPE), one of the world's largest makers of servers, has initiated a legal battle against Inspur Group, China's largest server maker, and its affiliates, alleging server patent infringements. HPE accuses Inspur of engaging in deceptive practices and renaming its subsidiaries in the U.S. to continue its business with American companies despite being included into the Entity List.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/c17xsnbinCQ?si=xHKslFgC3QbxY4qW" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/O7ChChlyX2o?si=7pMKdN1NZig1kYek" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## HPE: Inspur infringes our patents
@@ -28,7 +28,7 @@ thumbnail: https://thmb.techidaily.com/a42282b650e186f3549f7d2aa960eb18debb612fb
  LATEST VIDEOS FROM tomshardware Tom's Hardware
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/E1ax-vnGdeo?si=bgTkOhOEwDTlRQE3" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LW6wNx3XAj8?si=VaIuFIIx8MM_RhUR" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Despite being on the Entity List, Inspur continues operations in the U.S
@@ -38,7 +38,7 @@ thumbnail: https://thmb.techidaily.com/a42282b650e186f3549f7d2aa960eb18debb612fb
  The complaint claims that Inspur that inspur continues its operations in the United States under Aivres Systems and Betapex. Inspur allegedly removed its branding from products sold in the U.S. and continues to sell them. For example, Inspur's IR5280M6 server is Aivres's 5280M6 machine, it has the same specification and design, according to HPE's complaint. Meanwhile, Inspur has also worked as a contract maker of servers, according to The Register. Yet, if a U.S. entity plans to work with Inspur (or any other party from the Entity List), it has to get a special license from the U.S. government.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/58KlTPHv8dU?si=7ICagyNgrao7OkVO" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/fHWdQw1gRyI?si=ve9wZnPupiooLThG" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Stay On the Cutting Edge: Get the Tom's Hardware Newsletter
@@ -64,24 +64,22 @@ thumbnail: https://thmb.techidaily.com/a42282b650e186f3549f7d2aa960eb18debb612fb
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://vimeo-videos.techidaily.com/new-regular-software-updates-for-2024/"><u>[New] Regular Software Updates for 2024</u></a></li>
-<li><a href="https://instagram-video-files.techidaily.com/new-the-instagram-virtuosos-playbook-for-widespread-popularity-for-2024/"><u>[New] The Instagram Virtuoso's Playbook for Widespread Popularity for 2024</u></a></li>
-<li><a href="https://facebook-video-footage.techidaily.com/new-the-modern-marketers-guide-to-video-sharing-exploring-igtv-and-youtube/"><u>[New] The Modern Marketer's Guide to Video Sharing Exploring IGTV & YouTube</u></a></li>
-<li><a href="https://digital-screen-recording.techidaily.com/updated-2024-approved-splitcam-review-is-it-the-best-video-recorder/"><u>[Updated] 2024 Approved SplitCam Review Is It The Best Video Recorder?</u></a></li>
-<li><a href="https://on-screen-recording.techidaily.com/updated-navigating-video-capture-software-is-bandicam-superior-to-camtasia/"><u>[Updated] Navigating Video Capture Software Is Bandicam Superior to Camtasia?</u></a></li>
-<li><a href="https://win-howtos.techidaily.com/expert-tips-to-correct-user-profile-service-failures-during-login-in-windows-11/"><u>Expert Tips to Correct 'User Profile Service' Failures During Login in Windows 11</u></a></li>
-<li><a href="https://article-helps.techidaily.com/in-2024-principles-of-crafting-alluring-vlog-storylines/"><u>In 2024, Principles of Crafting Alluring Vlog Storylines</u></a></li>
-<li><a href="https://ai-topics.techidaily.com/new-a-detailed-and-trustworthy-review-of-murfai-ai-text-to-speech-tool/"><u>New A Detailed and Trustworthy Review of Murf.ai AI Text-to-Speech Tool</u></a></li>
-<li><a href="https://ai-topics.techidaily.com/new-a-detailed-review-of-murfai-ai-text-to-speech-tool/"><u>New A Detailed Review of Murf.ai AI Text-to-Speech Tool</u></a></li>
-<li><a href="https://ai-topics.techidaily.com/new-in-2024-how-to-enable-the-text-to-speech-function-on-iphone/"><u>New In 2024, How to Enable the Text to Speech Function on iPhone</u></a></li>
-<li><a href="https://ai-topics.techidaily.com/new-in-2024-the-best-english-voice-generator-to-convert-text-into-desired-accent/"><u>New In 2024, The Best English Voice Generator To Convert Text Into Desired Accent</u></a></li>
-<li><a href="https://ai-topics.techidaily.com/new-what-is-an-ai-presentation-maker/"><u>New What Is an AI Presentation Maker?</u></a></li>
-<li><a href="https://discover-dash.techidaily.com/uitwisselen-naar-windows-11-voorseten-van-een-harde-schijf-met-3-steunende-methodes/"><u>Uitwisselen Naar Windows 11: Voorseten Van Een Harde Schijf Met 3 Steunende Methodes</u></a></li>
-<li><a href="https://techidaily.com/unlock-iphone-13-mini-lock-with-itunes-by-drfone-ios-unlock-ios-unlock/"><u>Unlock iPhone 13 mini lock with iTunes</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/unlocking-secrets-to-selecting-prime-videographers/"><u>Unlocking Secrets to Selecting Prime Videographers</u></a></li>
-<li><a href="https://ai-topics.techidaily.com/updated-easy-guide-how-to-make-talking-head-videos-for-2024/"><u>Updated Easy Guide How To Make Talking Head Videos for 2024</u></a></li>
-<li><a href="https://ai-topics.techidaily.com/updated-the-best-tools-to-convert-text-to-mp3-with-the-best-natural-voices/"><u>Updated The Best Tools to Convert Text to MP3 With the Best Natural Voices</u></a></li>
-<li><a href="https://ai-topics.techidaily.com/what-are-ai-tools-for-2024/"><u>What Are AI Tools for 2024</u></a></li>
-<li><a href="https://ai-topics.techidaily.com/what-are-ai-tools-in-2024/"><u>What Are AI Tools, In 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-in-2024-every-creators-guide-to-youtube-revenue/"><u>[New] In 2024, Every Creator's Guide to YouTube Revenue</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/new-in-2024-iphone-tutorial-snap-and-stream-simultaneously/"><u>[New] In 2024, IPhone Tutorial Snap and Stream Simultaneously</u></a></li>
+<li><a href="https://ai-topics.techidaily.com/ai-portrait-generator-getting-closer-to-the-artistic-marvels/"><u>AI Portrait Generator Getting Closer to the Artistic Marvels</u></a></li>
+<li><a href="https://hardware-updates.techidaily.com/expert-tips-for-addressing-and-fixing-bluetooth-issues-in-windows-10/"><u>Expert Tips for Addressing and Fixing Bluetooth Issues in Windows 10</u></a></li>
+<li><a href="https://review-topics.techidaily.com/in-2024-how-to-find-ispoofer-pro-activation-key-on-apple-iphone-7-drfone-by-drfone-virtual-ios/"><u>In 2024, How to Find iSpoofer Pro Activation Key On Apple iPhone 7? | Dr.fone</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/in-2024-solutions-to-spy-on-realme-c67-5g-with-and-without-jailbreak-drfone-by-drfone-virtual-android/"><u>In 2024, Solutions to Spy on Realme C67 5G with and without jailbreak | Dr.fone</u></a></li>
+<li><a href="https://ai-topics.techidaily.com/new-2024-approved-narakeet-review-convenient-text-to-speech-voice-maker/"><u>New 2024 Approved Narakeet Review Convenient Text to Speech Voice Maker</u></a></li>
+<li><a href="https://ai-topics.techidaily.com/new-exploring-the-finest-text-to-speech-male-voice-tools-for-natural-output/"><u>New Exploring the Finest Text-to-Speech Male Voice Tools for Natural Output</u></a></li>
+<li><a href="https://ai-topics.techidaily.com/new-in-2024-design-cartoon-images-with-the-best-tools/"><u>New In 2024, Design Cartoon Images With the Best Tools</u></a></li>
+<li><a href="https://ai-topics.techidaily.com/new-in-2024-what-is-an-ai-tool/"><u>New In 2024, What Is an AI Tool?</u></a></li>
+<li><a href="https://ai-topics.techidaily.com/new-what-are-ai-tools-for-2024/"><u>New What Are AI Tools for 2024</u></a></li>
+<li><a href="https://win-web.techidaily.com/restoring-mouse-shortcuts-how-to-enable-right-click-options-on-windows-nx-systems/"><u>Restoring Mouse Shortcuts: How to Enable Right-Click Options on Windows nX Systems</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210105581-9781856754538-the-little-book-of-forgiveness/"><u>The Little Book of Forgiveness | Free Book</u></a></li>
+<li><a href="https://tech-hub.techidaily.com/unlocking-new-potentials-in-google-bard-with-palm-2-enhancements/"><u>Unlocking New Potentials in Google Bard with PaLM 2 Enhancements</u></a></li>
+<li><a href="https://ai-topics.techidaily.com/updated-in-2024-how-to-make-animation-talk-explained-with-easy-steps/"><u>Updated In 2024, How To Make Animation Talk? Explained with Easy Steps</u></a></li>
+<li><a href="https://ai-topics.techidaily.com/waht-is-ai-pixel-art-generator-in-2024/"><u>Waht Is AI Pixel Art Generator, In 2024</u></a></li>
+<li><a href="https://discover-bits.techidaily.com/windows-server-cloud-backup-software-ultimate-guide-and-top-reviews/"><u>Windows Server Cloud Backup Software: Ultimate Guide & TOP Reviews</u></a></li>
 </ul></div>
 

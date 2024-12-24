@@ -1,7 +1,7 @@
 ---
 title: "Experience Music Creation with Tulip: The Budget-Friendly MicroPython-Powered Computer - Only $59"
-date: 2024-12-12T16:28:58.657Z
-updated: 2024-12-15T21:41:53.732Z
+date: 2024-12-22T18:26:13.099Z
+updated: 2024-12-24T18:51:46.954Z
 tags:
   - desktop
 categories:
@@ -36,7 +36,7 @@ Over on Chinese videosharing platform Bilibili, user 苏打baka uploaded a lengt
  So, what happened? Did the static buildup short out the PC or something? Fortunately, nothing so mundane. Instead, the fan PC was tested at increasingly higher speeds until the[weighty cooler](https://www.tomshardware.com/news/noctua-fanless-cooler-enters-production) was violently flung from the PC in the last moments of the original video. No wonder Sodabaka hid behind a riot shield for much of the video demo.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/X4q6gyaEojM?si=ImdFm6Zsr0azykqV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/On0Jw2oMZf0?si=Pm-FJoEt8XWmtMbr" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Stay On the Cutting Edge: Get the Tom's Hardware Newsletter
@@ -62,14 +62,18 @@ Over on Chinese videosharing platform Bilibili, user 苏打baka uploaded a lengt
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-data.techidaily.com/ed-sustainable-strategies-for-securing-over-a-million-viewers-for-2024/"><u>[Updated] Sustainable Strategies for Securing Over a Million Viewers for 2024</u></a></li>
-<li><a href="https://ai-topics.techidaily.com/2024-approved-narakeet-review-convenient-text-to-speech-voice-maker/"><u>2024 Approved Narakeet Review Convenient Text to Speech Voice Maker</u></a></li>
-<li><a href="https://pokemon-go-android.techidaily.com/how-to-get-the-dragon-scale-and-evolution-enabled-pokemon-on-poco-c51-drfone-by-drfone-virtual-android/"><u>How to get the dragon scale and evolution-enabled pokemon On Poco C51? | Dr.fone</u></a></li>
-<li><a href="https://facebook.techidaily.com/todays-steering-group-at-facebook/"><u>Today’s Steering Group at Facebook</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/top-6-retailers-for-high-quality-laptops-on-the-market/"><u>Top 6 Retailers for High-Quality Laptops on the Market</u></a></li>
-<li><a href="https://some-guidance.techidaily.com/transformez-votre-audio-aiff-en-mp3-sans-frais-directement-sur-la-plateforme-de-movavi/"><u>Transformez Votre Audio AIFF en MP3 Sans Frais, Directement Sur La Plateforme De Movavi.</u></a></li>
-<li><a href="https://ai-topics.techidaily.com/updated-in-2024-the-power-of-ai-thumbnail-generators/"><u>Updated In 2024, The Power of AI Thumbnail Generators</u></a></li>
-<li><a href="https://ai-topics.techidaily.com/updated-in-2024-tips-for-perfecting-your-talking-face-content-a-complete-guide/"><u>Updated In 2024, Tips for Perfecting Your Talking Face Content A Complete Guide</u></a></li>
-<li><a href="https://ai-topics.techidaily.com/updated-in-2024-what-is-ai-api/"><u>Updated In 2024, What Is AI API?</u></a></li>
+<li><a href="https://fox-http.techidaily.com/new-auroras-role-in-enhancing-image-contrast/"><u>[New] Aurora's Role in Enhancing Image Contrast</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/new-libre-meditation-harmonies/"><u>[New] Libre Meditation Harmonies</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/updated-premium-audio-no-cost-lut-repository-summary/"><u>[Updated] Premium Audio No-Cost LUT Repository Summary</u></a></li>
+<li><a href="https://tech-hub.techidaily.com/5-strategies-for-leveraging-chatgpt-in-your-freelance-career/"><u>5 Strategies for Leveraging ChatGPT in Your Freelance Career</u></a></li>
+<li><a href="https://tools.techidaily.com/ablebits/outlook-shared-email-templates/"><u>Ablebits Shared Email Templates for Outlook</u></a></li>
+<li><a href="https://ai-topics.techidaily.com/breakthrough-how-to-make-a-picture-speak/"><u>Breakthrough How to Make A Picture Speak</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/intergalactic-idioms-deciphering-star-wars-vocabulary/"><u>Intergalactic Idioms: Deciphering Star Wars' Vocabulary</u></a></li>
+<li><a href="https://ai-topics.techidaily.com/new-in-2024-easy-steps-to-make-a-talking-avatar-with-ai-from-any-photos/"><u>New In 2024, Easy Steps to Make a Talking Avatar with AI From Any Photos</u></a></li>
+<li><a href="https://ai-topics.techidaily.com/new-in-2024-what-is-ai-pixel-art-generator/"><u>New In 2024, What Is AI Pixel Art Generator?</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/the-power-players-handbook-secrets-of-successful-instagram-advertising-for-2024/"><u>The Power Players' Handbook Secrets of Successful Instagram Advertising for 2024</u></a></li>
+<li><a href="https://ai-topics.techidaily.com/updated-2024-approved-how-to-make-your-memoji-talk-get-creative-with-your-messaging/"><u>Updated 2024 Approved How To Make Your Memoji Talk? Get Creative With Your Messaging</u></a></li>
+<li><a href="https://ai-topics.techidaily.com/what-is-an-ai-text-generator-in-2024/"><u>What Is an AI Text Generator, In 2024</u></a></li>
+<li><a href="https://ai-topics.techidaily.com/what-is-an-ai-video-generator/"><u>What Is an AI Video Generator?</u></a></li>
 </ul></div>
 

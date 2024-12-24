@@ -1,7 +1,7 @@
 ---
 title: "From Vintage Inspiration to Modern Creation: Building an Authentic Clone of the Classic 1986 Macintosh+"
-date: 2024-12-11T22:14:30.712Z
-updated: 2024-12-15T21:01:01.621Z
+date: 2024-12-23T18:18:04.944Z
+updated: 2024-12-24T16:50:01.667Z
 tags:
   - desktop
 categories:
@@ -32,7 +32,7 @@ The 2024 World Server Throwing Championship (WSTC) organizers are[calling for en
  We think there is plenty of room for improvement on the 2022 winning throw. Remember, the world record distance for throwing a 16-pound shot put is nearly 75 feet. For another comparison, in the Swedish sport of Stångstörtning, a roughly 57-pound log is tossed, with the world record distance being 32 feet. Much will depend on how well-tuned and trained the WSTC 2024 athletes are…
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Dn-24B6AURY?si=ErES2KWVnintY6h9" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/OFDHJnZLwTA?si=WThcb2h76AnZDzcQ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Stay On the Cutting Edge: Get the Tom's Hardware Newsletter
@@ -60,18 +60,24 @@ The 2024 World Server Throwing Championship (WSTC) organizers are[calling for en
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://some-techniques.techidaily.com/new-free-pics-with-exceptional-resolution-your-ultimate-guide/"><u>[New] Free Pics with Exceptional Resolution Your Ultimate Guide</u></a></li>
-<li><a href="https://fox-helps.techidaily.com/new-sharp-focus-tech-best-4k-camera-phones-of-the-genre-for-2024/"><u>[New] Sharp Focus Tech Best 4K Camera Phones of the Genre for 2024</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210495478-9781647843199-007-the-great-tao-of-spiritual-science-series-07/"><u>生命奧秘全書007：大道靈學探討與研究之機緣（體驗篇）: The Great Tao of Spiritual Science Series 07 | Free Book</u></a></li>
-<li><a href="https://ai-vdieo-software.techidaily.com/animation-mastery-the-best-professional-software-for-macwindows/"><u>Animation Mastery The Best Professional Software for Mac/Windows</u></a></li>
-<li><a href="https://extra-lessons.techidaily.com/craft-captivating-content-with-30-video-ideas-for-2024/"><u>Craft Captivating Content with 30 Video Ideas for 2024</u></a></li>
-<li><a href="https://solve-luxury.techidaily.com/gratis-programm-fur-das-klonen-von-datentragern-auf-windows-10-professionelles-migrationstool/"><u>Gratis Programm Für Das Klonen Von Datenträgern Auf Windows 10 - Professionelles Migrationstool</u></a></li>
-<li><a href="https://tech-savvy.techidaily.com/guidelines-for-perfecting-your-gpt-interactions/"><u>Guidelines for Perfecting Your GPT Interactions</u></a></li>
-<li><a href="https://pokemon-go-android.techidaily.com/in-2024-pokemon-go-no-gps-signal-heres-every-possible-solution-on-realme-v30-drfone-by-drfone-virtual-android/"><u>In 2024, Pokemon Go No GPS Signal? Heres Every Possible Solution On Realme V30 | Dr.fone</u></a></li>
-<li><a href="https://ai-topics.techidaily.com/new-essential-tools-for-creating-dynamic-talking-avatars/"><u>New Essential Tools for Creating Dynamic Talking Avatars</u></a></li>
-<li><a href="https://ai-topics.techidaily.com/new-in-2024-what-is-an-ai-editor/"><u>New In 2024, What Is an AI Editor?</u></a></li>
-<li><a href="https://ai-topics.techidaily.com/new-what-is-ai-advertising-in-2024/"><u>New What Is AI Advertising, In 2024</u></a></li>
-<li><a href="https://ai-topics.techidaily.com/top-10-talking-photo-online-tools-you-have-to-try/"><u>Top 10 Talking Photo Online Tools You Have To Try</u></a></li>
-<li><a href="https://fox-that.techidaily.com/unlock-essential-features-and-enhancements-the-critical-need-to-install-ios-153-today/"><u>Unlock Essential Features and Enhancements: The Critical Need to Install iOS 15.3 Today</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/aster-your-online-presence-the-ultimate-guide-to-effective-freefire-tags-for-2024/"><u>[New] Master Your Online Presence The Ultimate Guide to Effective FreeFire Tags for 2024</u></a></li>
+<li><a href="https://win-community.techidaily.com/1-behebung-von-nicht-genugend-speicherplatz-fehlern-drei-effektive-strategien-zur-losung-von-vss-problemen/"><u>1. Behebung Von 'Nicht Genügend Speicherplatz' Fehlern: Drei Effektive Strategien Zur Lösung Von VSS-Problemen</u></a></li>
+<li><a href="https://ai-topics.techidaily.com/2024-approved-what-is-chatgpt/"><u>2024 Approved What Is ChatGPT?</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/amazon-halo-unveiled-an-innovative-intimate-approach-to-tracking-your-wellbeing/"><u>Amazon Halo Unveiled - An Innovative, Intimate Approach to Tracking Your Wellbeing</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/av1-and-vp9-face-off-which-succeeds-more-in-2024/"><u>AV1 and VP9 Face-Off Which Succeeds More, In 2024</u></a></li>
+<li><a href="https://fake-location.techidaily.com/best-10-mock-location-apps-worth-trying-on-huawei-nova-y91-drfone-by-drfone-virtual-android/"><u>Best 10 Mock Location Apps Worth Trying On Huawei Nova Y91 | Dr.fone</u></a></li>
+<li><a href="https://article-files.techidaily.com/efficiently-navigating-zoom-on-chrome-devices-for-2024/"><u>Efficiently Navigating Zoom on Chrome Devices for 2024</u></a></li>
+<li><a href="https://apple-account.techidaily.com/how-to-remove-iphone-xs-device-from-icloud-by-drfone-ios/"><u>How to Remove iPhone XS Device from iCloud</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/in-2024-guidelines-for-stable-screen-recording-on-phones/"><u>In 2024, Guidelines for Stable Screen Recording on Phones</u></a></li>
+<li><a href="https://ai-topics.techidaily.com/in-2024-top-10-ai-talking-avatars-revolutionizing-communication/"><u>In 2024, Top 10 AI-Talking Avatars Revolutionizing Communication</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/mise-a-niveau-gratuite-de-h265-vers-h264-pour-pc-et-mac-sous-windows-1011/"><u>Mise À Niveau Gratuite De H.265 Vers H.264 Pour PC Et Mac Sous Windows 10/11</u></a></li>
+<li><a href="https://ai-topics.techidaily.com/new-5-best-realistic-text-to-speech-ai-voice-generators-you-may-like/"><u>New 5 Best Realistic Text to Speech AI Voice Generators You May Like</u></a></li>
+<li><a href="https://ai-topics.techidaily.com/new-in-2024-a-detailed-review-of-murfai-ai-text-to-speech-tool/"><u>New In 2024, A Detailed Review of Murf.ai AI Text-to-Speech Tool</u></a></li>
+<li><a href="https://ai-topics.techidaily.com/new-in-2024-essential-tips-for-shooting-talking-head-videos/"><u>New In 2024, Essential Tips for Shooting Talking Head Videos</u></a></li>
+<li><a href="https://ai-topics.techidaily.com/new-what-is-an-ai-artist/"><u>New What Is an AI Artist?</u></a></li>
+<li><a href="https://android-frp.techidaily.com/ultimate-guide-on-poco-x6-frp-bypass-by-drfone-android/"><u>Ultimate Guide on Poco X6 FRP Bypass</u></a></li>
+<li><a href="https://ai-topics.techidaily.com/updated-2024-approved-a-detailed-guide-to-making-your-pictures-speak/"><u>Updated 2024 Approved A Detailed Guide to Making Your Pictures Speak</u></a></li>
+<li><a href="https://ai-topics.techidaily.com/updated-2024-approved-what-is-an-ai-headshot-generator/"><u>Updated 2024 Approved What Is an AI Headshot Generator?</u></a></li>
+<li><a href="https://ai-topics.techidaily.com/updated-what-is-an-ai-editor-in-2024/"><u>Updated What Is an AI Editor, In 2024</u></a></li>
 </ul></div>
 
