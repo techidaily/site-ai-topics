@@ -1,7 +1,7 @@
 ---
 title: "Experience Music Creation with Tulip: The Budget-Friendly MicroPython-Powered Computer - Only $59"
-date: 2024-12-22T18:26:13.099Z
-updated: 2024-12-24T18:51:46.954Z
+date: 2024-12-25T23:40:20.607Z
+updated: 2025-01-01T23:25:35.214Z
 tags:
   - desktop
 categories:
@@ -36,7 +36,7 @@ Over on Chinese videosharing platform Bilibili, user 苏打baka uploaded a lengt
  So, what happened? Did the static buildup short out the PC or something? Fortunately, nothing so mundane. Instead, the fan PC was tested at increasingly higher speeds until the[weighty cooler](https://www.tomshardware.com/news/noctua-fanless-cooler-enters-production) was violently flung from the PC in the last moments of the original video. No wonder Sodabaka hid behind a riot shield for much of the video demo.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/On0Jw2oMZf0?si=Pm-FJoEt8XWmtMbr" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/BmegThMdrJE?si=rILo1FJb9DgnPljV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Stay On the Cutting Edge: Get the Tom's Hardware Newsletter
@@ -62,18 +62,21 @@ Over on Chinese videosharing platform Bilibili, user 苏打baka uploaded a lengt
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-http.techidaily.com/new-auroras-role-in-enhancing-image-contrast/"><u>[New] Aurora's Role in Enhancing Image Contrast</u></a></li>
-<li><a href="https://extra-skills.techidaily.com/new-libre-meditation-harmonies/"><u>[New] Libre Meditation Harmonies</u></a></li>
-<li><a href="https://extra-guidance.techidaily.com/updated-premium-audio-no-cost-lut-repository-summary/"><u>[Updated] Premium Audio No-Cost LUT Repository Summary</u></a></li>
-<li><a href="https://tech-hub.techidaily.com/5-strategies-for-leveraging-chatgpt-in-your-freelance-career/"><u>5 Strategies for Leveraging ChatGPT in Your Freelance Career</u></a></li>
-<li><a href="https://tools.techidaily.com/ablebits/outlook-shared-email-templates/"><u>Ablebits Shared Email Templates for Outlook</u></a></li>
-<li><a href="https://ai-topics.techidaily.com/breakthrough-how-to-make-a-picture-speak/"><u>Breakthrough How to Make A Picture Speak</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/intergalactic-idioms-deciphering-star-wars-vocabulary/"><u>Intergalactic Idioms: Deciphering Star Wars' Vocabulary</u></a></li>
-<li><a href="https://ai-topics.techidaily.com/new-in-2024-easy-steps-to-make-a-talking-avatar-with-ai-from-any-photos/"><u>New In 2024, Easy Steps to Make a Talking Avatar with AI From Any Photos</u></a></li>
-<li><a href="https://ai-topics.techidaily.com/new-in-2024-what-is-ai-pixel-art-generator/"><u>New In 2024, What Is AI Pixel Art Generator?</u></a></li>
-<li><a href="https://instagram-video-recordings.techidaily.com/the-power-players-handbook-secrets-of-successful-instagram-advertising-for-2024/"><u>The Power Players' Handbook Secrets of Successful Instagram Advertising for 2024</u></a></li>
-<li><a href="https://ai-topics.techidaily.com/updated-2024-approved-how-to-make-your-memoji-talk-get-creative-with-your-messaging/"><u>Updated 2024 Approved How To Make Your Memoji Talk? Get Creative With Your Messaging</u></a></li>
-<li><a href="https://ai-topics.techidaily.com/what-is-an-ai-text-generator-in-2024/"><u>What Is an AI Text Generator, In 2024</u></a></li>
-<li><a href="https://ai-topics.techidaily.com/what-is-an-ai-video-generator/"><u>What Is an AI Video Generator?</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/cb-branding-elements-download-free-pack/"><u>[New] MCB Branding Elements Download Free Pack</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/new-streaming-stations-beyond-ustream-reviews/"><u>[New] Streaming Stations Beyond Ustream Reviews</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/updated-simplifying-image-editing-with-picsarts-background-tool-for-2024/"><u>[Updated] Simplifying Image Editing with Picsart's Background Tool for 2024</u></a></li>
+<li><a href="https://tech-revival.techidaily.com/1-mastering-the-art-of-editing-on-youtube-a-complete-guide-using-youtubes-built-in-video-editor/"><u>1. Mastering the Art of Editing on YouTube: A Complete Guide Using YouTube's Built-In Video Editor</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/2024-approved-ultimate-text-effect-strategies/"><u>2024 Approved Ultimate Text Effect Strategies</u></a></li>
+<li><a href="https://ai-topics.techidaily.com/2024-approved-what-is-an-ai-avatar/"><u>2024 Approved What Is an AI Avatar?</u></a></li>
+<li><a href="https://ai-topics.techidaily.com/a-detailed-guide-to-making-your-pictures-speak/"><u>A Detailed Guide to Making Your Pictures Speak</u></a></li>
+<li><a href="https://hardware-reviews.techidaily.com/1723341735236-dough-spectrum-black-review-a-revolutionary-gaming-odyssey-on-a-premium-crafted-27-inch-oled-screen/"><u>Dough Spectrum Black Review: A Revolutionary Gaming Odyssey on a Premium-Crafted, 27-Inch OLED Screen</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/in-2024-full-guide-on-mirroring-your-samsung-galaxy-a15-4g-to-your-pcmac-drfone-by-drfone-android/"><u>In 2024, Full Guide on Mirroring Your Samsung Galaxy A15 4G to Your PC/Mac | Dr.fone</u></a></li>
+<li><a href="https://ai-topics.techidaily.com/new-2024-approved-what-is-an-ai-editor/"><u>New 2024 Approved What Is an AI Editor?</u></a></li>
+<li><a href="https://ai-topics.techidaily.com/new-2024-approved-what-is-an-ai-script-generator/"><u>New 2024 Approved What Is an AI Script Generator?</u></a></li>
+<li><a href="https://ai-topics.techidaily.com/new-essential-details-of-making-perfect-talking-face-for-2024/"><u>New Essential Details of Making Perfect Talking Face for 2024</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/rip-schutzkarten-fur-dvds-kostengunstig-extrahieren-mit-vlc-und-handbrake/"><u>RIP-Schutzkarten Für DVDs Kostengünstig Extrahieren Mit VLC Und HandBrake</u></a></li>
+<li><a href="https://techtrends.techidaily.com/safest-and-most-suitable-smartphones-for-children-tech-advice-by-zdnet/"><u>Safest & Most Suitable Smartphones for Children | Tech Advice by ZDNet</u></a></li>
+<li><a href="https://ai-topics.techidaily.com/users-guide-how-to-create-photo-talking-videos-with-the-best-tools-for-2024/"><u>Users Guide How To Create Photo Talking Videos With the Best Tools for 2024</u></a></li>
+<li><a href="https://ai-topics.techidaily.com/what-is-an-ai-art-generator-for-2024/"><u>What Is an AI Art Generator for 2024</u></a></li>
 </ul></div>
 
