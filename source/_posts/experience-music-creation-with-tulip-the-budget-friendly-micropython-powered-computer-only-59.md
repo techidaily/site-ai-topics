@@ -1,7 +1,7 @@
 ---
 title: "Experience Music Creation with Tulip: The Budget-Friendly MicroPython-Powered Computer - Only $59"
-date: 2024-12-25T23:40:20.607Z
-updated: 2025-01-01T23:25:35.214Z
+date: 2025-01-08T17:49:40.475Z
+updated: 2025-01-09T18:18:10.791Z
 tags:
   - desktop
 categories:
@@ -36,7 +36,7 @@ Over on Chinese videosharing platform Bilibili, user 苏打baka uploaded a lengt
  So, what happened? Did the static buildup short out the PC or something? Fortunately, nothing so mundane. Instead, the fan PC was tested at increasingly higher speeds until the[weighty cooler](https://www.tomshardware.com/news/noctua-fanless-cooler-enters-production) was violently flung from the PC in the last moments of the original video. No wonder Sodabaka hid behind a riot shield for much of the video demo.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/BmegThMdrJE?si=rILo1FJb9DgnPljV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Vfq0vw0Spz8?si=2EAk6hW-Gb-o33_L" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Stay On the Cutting Edge: Get the Tom's Hardware Newsletter
@@ -62,21 +62,24 @@ Over on Chinese videosharing platform Bilibili, user 苏打baka uploaded a lengt
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-tips.techidaily.com/cb-branding-elements-download-free-pack/"><u>[New] MCB Branding Elements Download Free Pack</u></a></li>
-<li><a href="https://some-guidance.techidaily.com/new-streaming-stations-beyond-ustream-reviews/"><u>[New] Streaming Stations Beyond Ustream Reviews</u></a></li>
-<li><a href="https://vp-tips.techidaily.com/updated-simplifying-image-editing-with-picsarts-background-tool-for-2024/"><u>[Updated] Simplifying Image Editing with Picsart's Background Tool for 2024</u></a></li>
-<li><a href="https://tech-revival.techidaily.com/1-mastering-the-art-of-editing-on-youtube-a-complete-guide-using-youtubes-built-in-video-editor/"><u>1. Mastering the Art of Editing on YouTube: A Complete Guide Using YouTube's Built-In Video Editor</u></a></li>
-<li><a href="https://some-approaches.techidaily.com/2024-approved-ultimate-text-effect-strategies/"><u>2024 Approved Ultimate Text Effect Strategies</u></a></li>
-<li><a href="https://ai-topics.techidaily.com/2024-approved-what-is-an-ai-avatar/"><u>2024 Approved What Is an AI Avatar?</u></a></li>
-<li><a href="https://ai-topics.techidaily.com/a-detailed-guide-to-making-your-pictures-speak/"><u>A Detailed Guide to Making Your Pictures Speak</u></a></li>
-<li><a href="https://hardware-reviews.techidaily.com/1723341735236-dough-spectrum-black-review-a-revolutionary-gaming-odyssey-on-a-premium-crafted-27-inch-oled-screen/"><u>Dough Spectrum Black Review: A Revolutionary Gaming Odyssey on a Premium-Crafted, 27-Inch OLED Screen</u></a></li>
-<li><a href="https://screen-mirror.techidaily.com/in-2024-full-guide-on-mirroring-your-samsung-galaxy-a15-4g-to-your-pcmac-drfone-by-drfone-android/"><u>In 2024, Full Guide on Mirroring Your Samsung Galaxy A15 4G to Your PC/Mac | Dr.fone</u></a></li>
-<li><a href="https://ai-topics.techidaily.com/new-2024-approved-what-is-an-ai-editor/"><u>New 2024 Approved What Is an AI Editor?</u></a></li>
-<li><a href="https://ai-topics.techidaily.com/new-2024-approved-what-is-an-ai-script-generator/"><u>New 2024 Approved What Is an AI Script Generator?</u></a></li>
-<li><a href="https://ai-topics.techidaily.com/new-essential-details-of-making-perfect-talking-face-for-2024/"><u>New Essential Details of Making Perfect Talking Face for 2024</u></a></li>
-<li><a href="https://vp-tips.techidaily.com/rip-schutzkarten-fur-dvds-kostengunstig-extrahieren-mit-vlc-und-handbrake/"><u>RIP-Schutzkarten Für DVDs Kostengünstig Extrahieren Mit VLC Und HandBrake</u></a></li>
-<li><a href="https://techtrends.techidaily.com/safest-and-most-suitable-smartphones-for-children-tech-advice-by-zdnet/"><u>Safest & Most Suitable Smartphones for Children | Tech Advice by ZDNet</u></a></li>
-<li><a href="https://ai-topics.techidaily.com/users-guide-how-to-create-photo-talking-videos-with-the-best-tools-for-2024/"><u>Users Guide How To Create Photo Talking Videos With the Best Tools for 2024</u></a></li>
-<li><a href="https://ai-topics.techidaily.com/what-is-an-ai-art-generator-for-2024/"><u>What Is an AI Art Generator for 2024</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/new-how-to-run-a-giveaway-facebook-post/"><u>[New] How to Run a Giveaway Facebook Post</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/new-in-2024-melodious-feed-infusing-ig-stories-with-music/"><u>[New] In 2024, Melodious Feed Infusing IG Stories With Music</u></a></li>
+<li><a href="https://eaxpv-info.techidaily.com/updated-revenue-revolution-joining-elite-at-500-subs-level/"><u>[Updated] Revenue Revolution Joining Elite at 500 Subs Level</u></a></li>
+<li><a href="https://ai-topics.techidaily.com/2024-approved-how-to-enable-the-text-to-speech-function-on-iphone/"><u>2024 Approved How to Enable the Text to Speech Function on iPhone</u></a></li>
+<li><a href="https://ai-topics.techidaily.com/2024-approved-what-is-ai-influencer/"><u>2024 Approved What Is AI Influencer?</u></a></li>
+<li><a href="https://ai-topics.techidaily.com/2024-approved-what-is-ai-marketing/"><u>2024 Approved What Is AI Marketing?</u></a></li>
+<li><a href="https://eaxpv-info.techidaily.com/boost-fps-performance-and-achieve-fluid-motion-in-games-using-cutting-edge-artificial-intelligence-frame-rate-upscale-technology/"><u>Boost FPS Performance & Achieve Fluid Motion in Games Using Cutting-Edge Artificial Intelligence Frame Rate Upscale Technology</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/full-scene-preview-a-complete-ppro-manual/"><u>Full Scene Preview A Complete PPro Manual</u></a></li>
+<li><a href="https://ios-unlock.techidaily.com/how-to-change-country-on-app-store-for-iphone-11-pro-max-with-7-methods-by-drfone-ios/"><u>How To Change Country on App Store for iPhone 11 Pro Max With 7 Methods</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/in-2024-how-to-use-special-features-virtual-location-on-oppo-find-n3-drfone-by-drfone-virtual-android/"><u>In 2024, How To Use Special Features - Virtual Location On Oppo Find N3? | Dr.fone</u></a></li>
+<li><a href="https://ai-topics.techidaily.com/new-2024-approved-demystifying-ai-game-generators-from-definition-to-distinction/"><u>New 2024 Approved Demystifying AI Game Generators From Definition to Distinction</u></a></li>
+<li><a href="https://ai-topics.techidaily.com/new-in-2024-the-power-of-ai-thumbnail-generators/"><u>New In 2024, The Power of AI Thumbnail Generators</u></a></li>
+<li><a href="https://ai-topics.techidaily.com/new-power-of-ai-thumbnail-generators/"><u>New Power of AI Thumbnail Generators</u></a></li>
+<li><a href="https://ai-topics.techidaily.com/new-the-best-tools-to-convert-text-to-mp3-with-the-best-natural-voices/"><u>New The Best Tools to Convert Text to MP3 With the Best Natural Voices</u></a></li>
+<li><a href="https://ai-topics.techidaily.com/new-what-is-ai-pixel-art-generator-for-2024/"><u>New What Is AI Pixel Art Generator for 2024</u></a></li>
+<li><a href="https://extra-support.techidaily.com/nostalgia-spin-off-the-goofy-movie-on-tape-for-2024/"><u>Nostalgia Spin-Off The Goofy Movie on Tape for 2024</u></a></li>
+<li><a href="https://video-screen-grab.techidaily.com/optimal-no-cost-android-video-maker/"><u>Optimal No-Cost Android Video Maker</u></a></li>
+<li><a href="https://printer-issues.techidaily.com/silent-shutdown-wake-up-with-these-troubleshooting-steps/"><u>Silent Shutdown? Wake Up With These Troubleshooting Steps</u></a></li>
+<li><a href="https://ai-topics.techidaily.com/updated-what-is-an-ai-headshot-generator-for-2024/"><u>Updated What Is an AI Headshot Generator for 2024</u></a></li>
 </ul></div>
 

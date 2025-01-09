@@ -1,7 +1,7 @@
 ---
 title: AceMagic's Early Delivery of Tiny Computers Compromised with Hidden Malicious Software - Company Responds
-date: 2024-12-29T04:36:00.478Z
-updated: 2025-01-01T18:55:49.304Z
+date: 2025-01-05T16:06:18.073Z
+updated: 2025-01-09T17:37:21.881Z
 tags:
   - desktop
 categories:
@@ -26,7 +26,7 @@ Just under four months after the initial[Ayaneo AM01 Mini PC unveiling](https://
  If you hope to get your hands on the Ayaneo AM01 PC as soon as possible, head to their Indiegogo page to buy the device through crowdfunding. And as always, while we acknowledge Ayaneo's excellent track record in crowdfunded devices, you can't know what to expect until people get their hands on it.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/it8VkxDUdAc?si=ef6VZWR7kW4P9ikh" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/2ipTu54inBo?si=gRegjvtVq5gm_PHo" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Stay On the Cutting Edge: Get the Tom's Hardware Newsletter
@@ -52,21 +52,22 @@ Just under four months after the initial[Ayaneo AM01 Mini PC unveiling](https://
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-boxes.techidaily.com/new-2024-approved-inter-device-image-sharing-expertise/"><u>[New] 2024 Approved Inter-Device Image Sharing Expertise</u></a></li>
-<li><a href="https://article-helps.techidaily.com/new-incorporating-zoom-for-video-conferencing-a-guide-for-gmail-professionals-for-2024/"><u>[New] Incorporating Zoom for Video Conferencing A Guide for Gmail Professionals for 2024</u></a></li>
-<li><a href="https://ai-topics.techidaily.com/2024-approved-how-to-generate-speech-from-text-the-top-text-to-speech-converters/"><u>2024 Approved How To Generate Speech From Text | The Top Text-to-Speech Converters</u></a></li>
-<li><a href="https://tech-renaissance.techidaily.com/apples-latest-release-introducing-the-newly-enhanced-airpods-4-with-find-my-speaker-feature-and-updated-usb-c-charging-port-innovation-unveiled/"><u>Apple's Latest Release: Introducing the Newly Enhanced AirPods 4 with 'Find My Speaker' Feature & Updated USB-C Charging Port - Innovation Unveiled</u></a></li>
-<li><a href="https://fox-hovers.techidaily.com/cutting-edge-psd-effects-guide/"><u>Cutting-Edge PSD Effects Guide</u></a></li>
-<li><a href="https://win-solutions.techidaily.com/definitive-fixes-handling-the-persistent-windows-10-error-code-0xc19001e1-challenge/"><u>Definitive Fixes: Handling the Persistent Windows 10 Error Code 0xC19001E1 Challenge</u></a></li>
-<li><a href="https://ai-topics.techidaily.com/essential-tools-for-creating-dynamic-talking-avatars-for-2024/"><u>Essential Tools for Creating Dynamic Talking Avatars for 2024</u></a></li>
-<li><a href="https://fake-location.techidaily.com/how-to-share-location-in-messenger-on-nokia-c300-drfone-by-drfone-virtual-android/"><u>How to Share Location in Messenger On Nokia C300? | Dr.fone</u></a></li>
-<li><a href="https://easy-unlock-android.techidaily.com/in-2024-best-ways-on-how-to-unlockbypassswiperemove-realme-gt-5-fingerprint-lock-by-drfone-android/"><u>In 2024, Best Ways on How to Unlock/Bypass/Swipe/Remove Realme GT 5 Fingerprint Lock</u></a></li>
-<li><a href="https://ai-topics.techidaily.com/in-2024-how-to-make-a-talking-ai-avatar-from-photos-easy-guide/"><u>In 2024, How to Make a Talking AI Avatar From Photos Easy Guide</u></a></li>
-<li><a href="https://smart-video-editing.techidaily.com/in-2024-replace-vsdc-with-these-top-notch-video-editors-on-mac/"><u>In 2024, Replace VSDC with These Top-Notch Video Editors on Mac</u></a></li>
-<li><a href="https://ai-topics.techidaily.com/in-2024-the-best-tools-to-convert-text-to-mp3-with-the-best-natural-voices/"><u>In 2024, The Best Tools to Convert Text to MP3 With the Best Natural Voices</u></a></li>
-<li><a href="https://buynow-marvelous.techidaily.com/innovating-your-memories-top-internet-print-services-of-24/"><u>Innovating Your Memories: Top Internet Print Services of '24</u></a></li>
-<li><a href="https://ai-topics.techidaily.com/make-your-pictures-speak-online-with-the-best-tools-recommended-for-2024/"><u>Make Your Pictures Speak Online With the Best Tools Recommended for 2024</u></a></li>
-<li><a href="https://ai-topics.techidaily.com/new-in-depth-review-of-ivona-text-to-speech-converter-for-2024/"><u>New In-Depth Review of Ivona Text to Speech Converter for 2024</u></a></li>
-<li><a href="https://ai-topics.techidaily.com/new-what-is-an-ai-video-maker-in-2024/"><u>New What Is an AI Video Maker, In 2024</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/new-2024-approved-premier-selection-of-toppest-free-video-calls-and-screenshare/"><u>[New] 2024 Approved Premier Selection of Toppest FREE Video Calls & Screenshare</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/new-redefining-social-sharing-alternatives-to-periscope-on-iphones-and-androids/"><u>[New] Redefining Social Sharing Alternatives to Periscope on iPhones & Androids</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/updated-how-to-record-audio-with-audacity-on-mac-for-2024/"><u>[Updated] How to Record Audio with Audacity on Mac for 2024</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/approved-leading-the-way-in-video-production-comprerant-free-youtube-intro-makers/"><u>2024 Approved Leading the Way in Video Production Compreran't Free YouTube Intro Makers</u></a></li>
+<li><a href="https://ai-topics.techidaily.com/2024-approved-the-most-recommended-natural-ai-hindi-voice-generator/"><u>2024 Approved The Most Recommended Natural AI Hindi Voice Generator</u></a></li>
+<li><a href="https://ai-topics.techidaily.com/2024-approved-what-is-an-ai-video-maker/"><u>2024 Approved What Is an AI Video Maker?</u></a></li>
+<li><a href="https://ai-topics.techidaily.com/create-talking-cartoon-images-using-top-tools-for-2024/"><u>Create Talking Cartoon Images Using Top Tools for 2024</u></a></li>
+<li><a href="https://win-dash.techidaily.com/download-and-update-guide-ch340g-serial-port-drivers-for-windows-11/"><u>Download & Update Guide: CH340G Serial Port Drivers for Windows 11</u></a></li>
+<li><a href="https://win11-tips.techidaily.com/elevate-pc-ui-with-customizable-weather-icon-addition-in-windows-11-system-tray/"><u>Elevate PC UI with Customizable Weather Icon Addition in Windows 11 System Tray</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/how-to-write-compelling-podcast-narratives-and-examples-at-no-cost-for-2024/"><u>How to Write Compelling Podcast Narratives & Examples at No Cost for 2024</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/in-2024-deciphering-screens-a-comprehensive-review-of-recording-apps/"><u>In 2024, Deciphering Screens A Comprehensive Review of Recording Apps</u></a></li>
+<li><a href="https://ai-topics.techidaily.com/in-2024-in-depth-review-of-ivona-text-to-speech-converter/"><u>In 2024, In-Depth Review of Ivona Text to Speech Converter</u></a></li>
+<li><a href="https://extra-information.techidaily.com/lightning-fast-the-art-of-windows-file-scanning/"><u>Lightning-Fast The Art of Windows File Scanning</u></a></li>
+<li><a href="https://ai-topics.techidaily.com/new-in-2024-how-to-create-funny-talking-avatars-using-oddcast-text-to-speech-tech/"><u>New In 2024, How to Create Funny Talking Avatars Using Oddcast Text to Speech Tech</u></a></li>
+<li><a href="https://ai-topics.techidaily.com/new-what-is-ai-text-to-video/"><u>New What Is AI Text to Video?</u></a></li>
+<li><a href="https://ai-topics.techidaily.com/what-is-ai-background-generator/"><u>What Is AI Background Generator?</u></a></li>
+<li><a href="https://ai-topics.techidaily.com/what-is-ai-voice-in-2024/"><u>What Is AI Voice, In 2024</u></a></li>
 </ul></div>
 

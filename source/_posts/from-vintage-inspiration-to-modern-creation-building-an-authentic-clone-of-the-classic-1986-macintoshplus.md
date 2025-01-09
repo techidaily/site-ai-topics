@@ -1,7 +1,7 @@
 ---
 title: "From Vintage Inspiration to Modern Creation: Building an Authentic Clone of the Classic 1986 Macintosh+"
-date: 2024-12-26T22:21:25.781Z
-updated: 2025-01-01T21:15:02.182Z
+date: 2025-01-03T18:11:27.794Z
+updated: 2025-01-09T17:54:10.319Z
 tags:
   - desktop
 categories:
@@ -32,7 +32,7 @@ The 2024 World Server Throwing Championship (WSTC) organizers are[calling for en
  We think there is plenty of room for improvement on the 2022 winning throw. Remember, the world record distance for throwing a 16-pound shot put is nearly 75 feet. For another comparison, in the Swedish sport of Stångstörtning, a roughly 57-pound log is tossed, with the world record distance being 32 feet. Much will depend on how well-tuned and trained the WSTC 2024 athletes are…
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/9hsPbiic0O8?si=58mZ2Cu6wicQfsUP" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/XS1nQCe95LU?si=A2dhdFkSAI61_nKA" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Stay On the Cutting Edge: Get the Tom's Hardware Newsletter
@@ -60,20 +60,19 @@ The 2024 World Server Throwing Championship (WSTC) organizers are[calling for en
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://instagram-video-recordings.techidaily.com/1716183781299-new-how-to-edit-vertical-videos-for-instagram-in-final-cut-pro-x-for-2024/"><u>[New] How to Edit Vertical Videos for Instagram in Final Cut Pro X for 2024</u></a></li>
-<li><a href="https://some-techniques.techidaily.com/new-how-to-write-a-great-podcast-techniques-and-10plus-free-example-scripts-inside/"><u>[New] How to Write a Great Podcast Techniques & 10+ Free Example Scripts Inside</u></a></li>
-<li><a href="https://facebook-video-footage.techidaily.com/updated-explore-sony-vegas-for-high-impact-video-editing-on-youtube/"><u>[Updated] Explore Sony Vegas for High-Impact Video Editing on YouTube</u></a></li>
-<li><a href="https://facebook-clips.techidaily.com/updated-in-2024-top-youtube-trends-a-curated-selection/"><u>[Updated] In 2024, Top YouTube Trends A Curated Selection</u></a></li>
-<li><a href="https://extra-support.techidaily.com/updated-srt-to-txt-mastery-the-2023-guide-for-rapid-changeover/"><u>[Updated] SRT to TXT Mastery The 2023 Guide for Rapid Changeover</u></a></li>
-<li><a href="https://solve-latest.techidaily.com/abbyy-introduces-new-flexicapture-bridge-in-pfus-advanced-paperstream-nx-document-management-platform/"><u>ABBYY Introduces New FlexiCapture Bridge in PFU's Advanced Paperstream NX Document Management Platform</u></a></li>
-<li><a href="https://android-unlock.techidaily.com/complete-review-and-guide-to-techeligible-frp-bypass-and-more-for-lava-blaze-2-5g-by-drfone-android/"><u>Complete Review & Guide to Techeligible FRP Bypass and More For Lava Blaze 2 5G</u></a></li>
-<li><a href="https://android-location-track.techidaily.com/in-2024-top-5-tracking-apps-to-track-samsung-galaxy-s23-tactical-edition-without-them-knowing-drfone-by-drfone-virtual-android/"><u>In 2024, Top 5 Tracking Apps to Track Samsung Galaxy S23 Tactical Edition without Them Knowing | Dr.fone</u></a></li>
-<li><a href="https://ai-topics.techidaily.com/new-2024-approved-design-cartoon-images-with-the-best-tools/"><u>New 2024 Approved Design Cartoon Images With the Best Tools</u></a></li>
-<li><a href="https://ai-topics.techidaily.com/new-2024-approved-the-best-english-voice-generator-to-convert-text-into-desired-accent/"><u>New 2024 Approved The Best English Voice Generator To Convert Text Into Desired Accent</u></a></li>
-<li><a href="https://ai-topics.techidaily.com/new-in-2024-what-is-an-ai-video-maker/"><u>New In 2024, What Is an AI Video Maker?</u></a></li>
-<li><a href="https://ai-topics.techidaily.com/updated-2024-approved-what-is-an-ai-video-maker/"><u>Updated 2024 Approved What Is an AI Video Maker?</u></a></li>
-<li><a href="https://ai-topics.techidaily.com/updated-in-2024-how-to-enable-the-text-to-speech-function-on-iphone/"><u>Updated In 2024, How to Enable the Text to Speech Function on iPhone</u></a></li>
-<li><a href="https://ai-topics.techidaily.com/updated-what-is-talking-avatar-in-2024/"><u>Updated What Is Talking Avatar, In 2024</u></a></li>
-<li><a href="https://ai-topics.techidaily.com/what-is-ai-generated-text-for-2024/"><u>What Is AI Generated Text for 2024</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/024-approved-legality-check-taking-screencasts-of-youtube-videos/"><u>[New] 2024 Approved Legality Check Taking Screencasts of YouTube Videos</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/new-capture-phone-gaming-moments-on-samsung-devices/"><u>[New] Capture Phone Gaming Moments on Samsung Devices</u></a></li>
+<li><a href="https://article-posts.techidaily.com/new-in-2024-simplest-way-win-clownfish-vocal-alteration-tool/"><u>[New] In 2024, Simplest Way Win Clownfish Vocal Alteration Tool</u></a></li>
+<li><a href="https://fox-info.techidaily.com/new-professional-perception-pioneering-hdr-art-with-photoshop-for-2024/"><u>[New] Professional Perception Pioneering HDR Art with PhotoShop for 2024</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/updated-unpacking-the-performance-a-complete-guide-to-lg-bp350-monitors/"><u>[Updated] Unpacking the Performance A Complete Guide to LG BP350 Monitors</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/channel-identity-visualization-the-ultimate-toolkit-of-10-for-2024/"><u>Channel Identity Visualization The Ultimate Toolkit of 10 for 2024</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/in-2024-how-to-cast-zte-axon-40-lite-screen-to-pc-using-wifi-drfone-by-drfone-android/"><u>In 2024, How to Cast ZTE Axon 40 Lite Screen to PC Using WiFi | Dr.fone</u></a></li>
+<li><a href="https://ai-topics.techidaily.com/new-2024-approved-what-is-ai-pixel-art-generator/"><u>New 2024 Approved What Is AI Pixel Art Generator?</u></a></li>
+<li><a href="https://ai-topics.techidaily.com/new-a-detailed-review-of-murfai-ai-text-to-speech-tool-for-2024/"><u>New A Detailed Review of Murf.ai AI Text-to-Speech Tool for 2024</u></a></li>
+<li><a href="https://ai-topics.techidaily.com/new-what-is-ai-pixel-art-generator/"><u>New What Is AI Pixel Art Generator?</u></a></li>
+<li><a href="https://win11-tips.techidaily.com/secure-multi-media-suite-by-movavi-your-trustworthy-digital-tool/"><u>Secure Multi-Media Suite by Movavi: Your Trustworthy Digital Tool</u></a></li>
+<li><a href="https://ai-topics.techidaily.com/updated-2024-approved-what-is-an-ai-text-generator/"><u>Updated 2024 Approved What Is an AI Text Generator?</u></a></li>
+<li><a href="https://ai-topics.techidaily.com/updated-how-to-create-funny-talking-avatars-using-oddcast-text-to-speech/"><u>Updated How to Create Funny Talking Avatars Using Oddcast Text to Speech</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/youtube-clip-maker/"><u>Youtube Clip Maker</u></a></li>
 </ul></div>
 

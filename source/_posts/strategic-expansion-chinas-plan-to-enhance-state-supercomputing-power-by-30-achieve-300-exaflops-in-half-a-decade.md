@@ -1,7 +1,7 @@
 ---
 title: "Strategic Expansion: China's Plan to Enhance State Supercomputing Power by 30%%, Achieve 300 Exaflops in Half a Decade"
-date: 2024-12-31T03:46:21.049Z
-updated: 2025-01-01T21:21:11.115Z
+date: 2025-01-02T17:30:42.875Z
+updated: 2025-01-09T19:09:08.551Z
 tags:
   - desktop
 categories:
@@ -14,7 +14,7 @@ thumbnail: https://thmb.techidaily.com/a42282b650e186f3549f7d2aa960eb18debb612fb
 [Hewlett Packard](https://www.tomshardware.com/tag/hewlett-packard) [Enterprise](https://www.tomshardware.com/tag/enterprise) (HPE), one of the world's largest makers of servers, has initiated a legal battle against Inspur Group, China's largest server maker, and its affiliates, alleging server patent infringements. HPE accuses Inspur of engaging in deceptive practices and renaming its subsidiaries in the U.S. to continue its business with American companies despite being included into the Entity List.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/RhLjZsruC9M?si=-861oUSfrUde2Ykt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/E1ax-vnGdeo?si=bgTkOhOEwDTlRQE3" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## HPE: Inspur infringes our patents
@@ -28,7 +28,7 @@ thumbnail: https://thmb.techidaily.com/a42282b650e186f3549f7d2aa960eb18debb612fb
  LATEST VIDEOS FROM tomshardware Tom's Hardware
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/kZVDkvMZvP4?si=xAugrCf-Ud6EMMpm" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/pRR3Oq03EuE?si=ZTy8-WH0AesA9zRh" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Despite being on the Entity List, Inspur continues operations in the U.S
@@ -38,7 +38,7 @@ thumbnail: https://thmb.techidaily.com/a42282b650e186f3549f7d2aa960eb18debb612fb
  The complaint claims that Inspur that inspur continues its operations in the United States under Aivres Systems and Betapex. Inspur allegedly removed its branding from products sold in the U.S. and continues to sell them. For example, Inspur's IR5280M6 server is Aivres's 5280M6 machine, it has the same specification and design, according to HPE's complaint. Meanwhile, Inspur has also worked as a contract maker of servers, according to The Register. Yet, if a U.S. entity plans to work with Inspur (or any other party from the Entity List), it has to get a special license from the U.S. government.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/iLlpdv0cz_k?si=HwTdnMmeVJXm4GPV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/dKjioJQaUh8?si=Ls_AeuvGsSyL5ny2" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Stay On the Cutting Edge: Get the Tom's Hardware Newsletter
@@ -64,18 +64,24 @@ thumbnail: https://thmb.techidaily.com/a42282b650e186f3549f7d2aa960eb18debb612fb
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-videos.techidaily.com/new-stop-and-start-strategies-fb-livestream-recovery-methods-for-2024/"><u>[New] Stop and Start Strategies FB Livestream Recovery Methods for 2024</u></a></li>
-<li><a href="https://fox-direct.techidaily.com/new-visual-storytellers-complete-vsco-tutorial-for-2024/"><u>[New] Visual Storyteller's Complete VSCO Tutorial for 2024</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/updated-2024-approved-15-best-youtube-anime-channels-to-make-your-day/"><u>[Updated] 2024 Approved 15 Best YouTube Anime Channels to Make Your Day</u></a></li>
-<li><a href="https://fox-links.techidaily.com/updated-breaking-down-the-process-of-adding-fonts-to-ae-projects/"><u>[Updated] Breaking Down the Process of Adding Fonts to AE Projects</u></a></li>
-<li><a href="https://article-files.techidaily.com/updated-harness-your-pcs-power-for-high-dynamic-range-video-magic-for-2024/"><u>[Updated] Harness Your PC's Power for High Dynamic Range Video Magic for 2024</u></a></li>
-<li><a href="https://tech-haven.techidaily.com/chatbot-face-off-determining-the-top-contender-chatgpt-or-bing-chat/"><u>Chatbot Face-Off: Determining the Top Contender, ChatGPT or Bing Chat?</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/209848737-9781618130945-la-purificacion-del-corazon/"><u>La Purificación del Corazón | Free Book</u></a></li>
-<li><a href="https://tiktok-videos.techidaily.com/navigating-to-your-distinctive-tiktok-tag-for-2024/"><u>Navigating to Your Distinctive TikTok Tag for 2024</u></a></li>
-<li><a href="https://ai-topics.techidaily.com/new-essential-details-of-making-perfect-talking-face/"><u>New Essential Details of Making Perfect Talking Face</u></a></li>
-<li><a href="https://unlock-android.techidaily.com/unlocking-made-easy-the-best-10-apps-for-unlocking-your-xiaomi-redmi-13c-device-by-drfone-android/"><u>Unlocking Made Easy The Best 10 Apps for Unlocking Your Xiaomi Redmi 13C Device</u></a></li>
-<li><a href="https://ai-topics.techidaily.com/updated-2024-approved-easy-guide-how-to-make-talking-head-videos/"><u>Updated 2024 Approved Easy Guide How To Make Talking Head Videos</u></a></li>
-<li><a href="https://ai-topics.techidaily.com/updated-in-2024-what-is-an-ai-avatar/"><u>Updated In 2024, What Is an AI Avatar?</u></a></li>
-<li><a href="https://ai-topics.techidaily.com/updated-the-most-recommended-natural-ai-hindi-voice-generator-for-2024/"><u>Updated The Most Recommended Natural AI Hindi Voice Generator for 2024</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/updated-the-essential-techniques-for-music-layering-in-fb-media-for-2024/"><u>[Updated] The Essential Techniques for Music Layering in FB Media for 2024</u></a></li>
+<li><a href="https://some-skills.techidaily.com/updated-top-10-audio-transformation-apps-for-next-level-vtuber-performance/"><u>[Updated] Top 10 Audio Transformation Apps for Next-Level VTuber Performance</u></a></li>
+<li><a href="https://fox-direct.techidaily.com/2024-approved-optimal-choices-in-monitors-for-ps5-gamers/"><u>2024 Approved Optimal Choices in Monitors for PS5 Gamers</u></a></li>
+<li><a href="https://ai-topics.techidaily.com/2024-approved-the-ultimate-guide-to-generating-speech-in-different-languages-with-the-best-tools/"><u>2024 Approved The Ultimate Guide to Generating Speech in Different Languages With the Best Tools</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/expert-picks-leading-usb-wireless-nics-to-upgrade-your-connectivity/"><u>Expert Picks: Leading USB Wireless NICs to Upgrade Your Connectivity</u></a></li>
+<li><a href="https://android-location.techidaily.com/in-2024-3-effective-methods-to-fake-gps-location-on-android-for-your-huawei-p60-drfone-by-drfone-virtual/"><u>In 2024, 3 Effective Methods to Fake GPS location on Android For your Huawei P60 | Dr.fone</u></a></li>
+<li><a href="https://ai-topics.techidaily.com/new-in-2024-demystifying-ai-game-generators-from-definition-to-distinction/"><u>New In 2024, Demystifying AI Game Generators From Definition to Distinction</u></a></li>
+<li><a href="https://ai-topics.techidaily.com/new-what-is-an-ai-headshot-generator-in-2024/"><u>New What Is an AI Headshot Generator, In 2024</u></a></li>
+<li><a href="https://ai-topics.techidaily.com/new-what-is-an-ai-headshot-generator/"><u>New What Is an AI Headshot Generator?</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/n-youtube-seo-methods-for-video-rankings/"><u>Proven YouTube SEO Methods for Video Rankings</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/the-insiders-manual-to-upload-content-to-igtv-for-2024/"><u>The Insider's Manual to Upload Content to IGTV for 2024</u></a></li>
+<li><a href="https://tech-hub.techidaily.com/the-power-of-choice-in-ai-craft-customized-gpt-models-using-the-newest-features-of-chatgpt/"><u>The Power of Choice in AI: Craft Customized GPT Models Using the Newest Features of ChatGPT</u></a></li>
+<li><a href="https://win11.techidaily.com/the-ultimate-route-to-integrating-apple-events-in-windows-11/"><u>The Ultimate Route to Integrating Apple Events in Windows 11</u></a></li>
+<li><a href="https://tech-savvy.techidaily.com/ultimate-modifications-combining-gpt-with-vs-code/"><u>Ultimate Modifications: Combining GPT with VS Code</u></a></li>
+<li><a href="https://ai-topics.techidaily.com/updated-2024-approved-demystifying-ai-game-generators-from-definition-to-distinction/"><u>Updated 2024 Approved Demystifying AI Game Generators From Definition to Distinction</u></a></li>
+<li><a href="https://ai-topics.techidaily.com/updated-2024-approved-tips-for-perfecting-your-talking-face-content-a-complete-guide/"><u>Updated 2024 Approved Tips for Perfecting Your Talking Face Content A Complete Guide</u></a></li>
+<li><a href="https://ai-topics.techidaily.com/updated-2024-approved-what-is-an-ai-video-generator/"><u>Updated 2024 Approved What Is an AI Video Generator?</u></a></li>
+<li><a href="https://ai-topics.techidaily.com/updated-in-2024-what-is-an-ai-tool/"><u>Updated In 2024, What Is an AI Tool?</u></a></li>
+<li><a href="https://ai-topics.techidaily.com/what-is-ai-advertising-in-2024/"><u>What Is AI Advertising, In 2024</u></a></li>
 </ul></div>
 
