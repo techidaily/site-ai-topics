@@ -1,7 +1,7 @@
 ---
 title: "Experience Music Creation with Tulip: The Budget-Friendly MicroPython-Powered Computer - Only $59"
-date: 2025-01-08T17:49:40.475Z
-updated: 2025-01-09T18:18:10.791Z
+date: 2025-01-10T19:38:00.035Z
+updated: 2025-01-15T07:35:18.673Z
 tags:
   - desktop
 categories:
@@ -36,7 +36,7 @@ Over on Chinese videosharing platform Bilibili, user 苏打baka uploaded a lengt
  So, what happened? Did the static buildup short out the PC or something? Fortunately, nothing so mundane. Instead, the fan PC was tested at increasingly higher speeds until the[weighty cooler](https://www.tomshardware.com/news/noctua-fanless-cooler-enters-production) was violently flung from the PC in the last moments of the original video. No wonder Sodabaka hid behind a riot shield for much of the video demo.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Vfq0vw0Spz8?si=2EAk6hW-Gb-o33_L" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/gkdZ3A1mock?si=2zeR5GtTU2VujM_w" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Stay On the Cutting Edge: Get the Tom's Hardware Newsletter
@@ -62,24 +62,20 @@ Over on Chinese videosharing platform Bilibili, user 苏打baka uploaded a lengt
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://some-knowledge.techidaily.com/new-how-to-run-a-giveaway-facebook-post/"><u>[New] How to Run a Giveaway Facebook Post</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/new-in-2024-melodious-feed-infusing-ig-stories-with-music/"><u>[New] In 2024, Melodious Feed Infusing IG Stories With Music</u></a></li>
-<li><a href="https://eaxpv-info.techidaily.com/updated-revenue-revolution-joining-elite-at-500-subs-level/"><u>[Updated] Revenue Revolution Joining Elite at 500 Subs Level</u></a></li>
-<li><a href="https://ai-topics.techidaily.com/2024-approved-how-to-enable-the-text-to-speech-function-on-iphone/"><u>2024 Approved How to Enable the Text to Speech Function on iPhone</u></a></li>
-<li><a href="https://ai-topics.techidaily.com/2024-approved-what-is-ai-influencer/"><u>2024 Approved What Is AI Influencer?</u></a></li>
-<li><a href="https://ai-topics.techidaily.com/2024-approved-what-is-ai-marketing/"><u>2024 Approved What Is AI Marketing?</u></a></li>
-<li><a href="https://eaxpv-info.techidaily.com/boost-fps-performance-and-achieve-fluid-motion-in-games-using-cutting-edge-artificial-intelligence-frame-rate-upscale-technology/"><u>Boost FPS Performance & Achieve Fluid Motion in Games Using Cutting-Edge Artificial Intelligence Frame Rate Upscale Technology</u></a></li>
-<li><a href="https://extra-hints.techidaily.com/full-scene-preview-a-complete-ppro-manual/"><u>Full Scene Preview A Complete PPro Manual</u></a></li>
-<li><a href="https://ios-unlock.techidaily.com/how-to-change-country-on-app-store-for-iphone-11-pro-max-with-7-methods-by-drfone-ios/"><u>How To Change Country on App Store for iPhone 11 Pro Max With 7 Methods</u></a></li>
-<li><a href="https://phone-solutions.techidaily.com/in-2024-how-to-use-special-features-virtual-location-on-oppo-find-n3-drfone-by-drfone-virtual-android/"><u>In 2024, How To Use Special Features - Virtual Location On Oppo Find N3? | Dr.fone</u></a></li>
-<li><a href="https://ai-topics.techidaily.com/new-2024-approved-demystifying-ai-game-generators-from-definition-to-distinction/"><u>New 2024 Approved Demystifying AI Game Generators From Definition to Distinction</u></a></li>
-<li><a href="https://ai-topics.techidaily.com/new-in-2024-the-power-of-ai-thumbnail-generators/"><u>New In 2024, The Power of AI Thumbnail Generators</u></a></li>
-<li><a href="https://ai-topics.techidaily.com/new-power-of-ai-thumbnail-generators/"><u>New Power of AI Thumbnail Generators</u></a></li>
-<li><a href="https://ai-topics.techidaily.com/new-the-best-tools-to-convert-text-to-mp3-with-the-best-natural-voices/"><u>New The Best Tools to Convert Text to MP3 With the Best Natural Voices</u></a></li>
-<li><a href="https://ai-topics.techidaily.com/new-what-is-ai-pixel-art-generator-for-2024/"><u>New What Is AI Pixel Art Generator for 2024</u></a></li>
-<li><a href="https://extra-support.techidaily.com/nostalgia-spin-off-the-goofy-movie-on-tape-for-2024/"><u>Nostalgia Spin-Off The Goofy Movie on Tape for 2024</u></a></li>
-<li><a href="https://video-screen-grab.techidaily.com/optimal-no-cost-android-video-maker/"><u>Optimal No-Cost Android Video Maker</u></a></li>
-<li><a href="https://printer-issues.techidaily.com/silent-shutdown-wake-up-with-these-troubleshooting-steps/"><u>Silent Shutdown? Wake Up With These Troubleshooting Steps</u></a></li>
-<li><a href="https://ai-topics.techidaily.com/updated-what-is-an-ai-headshot-generator-for-2024/"><u>Updated What Is an AI Headshot Generator for 2024</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/new-in-2024-spectacular-gratis-switch-gaming-tools/"><u>[New] In 2024, Spectacular Gratis Switch Gaming Tools</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/n-2024-ultimate-youtuber-wealth-wonders/"><u>[New] In 2024, Ultimate Youtuber Wealth Wonders</u></a></li>
+<li><a href="https://screen-activity-recording.techidaily.com/new-simple-screen-recorder-for-windows-11-download/"><u>[New] Simple Screen Recorder for Windows 11 Download</u></a></li>
+<li><a href="https://video-screen-grab.techidaily.com/updated-mastering-ease-inease-out-techniques-in-camtasa-9-for-2024/"><u>[Updated] Mastering Ease In/Ease Out Techniques in Camtasa 9 for 2024</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/mp3mkv/"><u>損失なしでMP3/MKVファイル編集ガイド</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/enhancing-executive-speech-and-articulation-in-companies/"><u>Enhancing Executive Speech & Articulation in Companies</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/first-timers-cameras-guide-best-of-24/"><u>First-Timer's Cameras Guide - Best of '24</u></a></li>
+<li><a href="https://ai-topics.techidaily.com/in-2024-guide-on-how-to-enable-the-text-to-speech-function-on-iphone/"><u>In 2024, Guide on How to Enable the Text to Speech Function on iPhone</u></a></li>
+<li><a href="https://ai-topics.techidaily.com/new-2024-approved-exploring-ai-face-generators/"><u>New 2024 Approved Exploring AI Face Generators</u></a></li>
+<li><a href="https://ai-topics.techidaily.com/new-2024-approved-tips-for-perfecting-your-talking-face-content-a-complete-guide/"><u>New 2024 Approved Tips for Perfecting Your Talking Face Content A Complete Guide</u></a></li>
+<li><a href="https://ai-topics.techidaily.com/new-demystifying-ai-game-generators-from-definition-to-distinction-for-2024/"><u>New Demystifying AI Game Generators From Definition to Distinction for 2024</u></a></li>
+<li><a href="https://ai-topics.techidaily.com/new-in-2024-what-is-ai-background-generator/"><u>New In 2024, What Is AI Background Generator?</u></a></li>
+<li><a href="https://change-location.techidaily.com/pokemon-go-error-12-failed-to-detect-location-on-vivo-s18e-drfone-by-drfone-virtual-android/"><u>Pokemon Go Error 12 Failed to Detect Location On Vivo S18e? | Dr.fone</u></a></li>
+<li><a href="https://ai-topics.techidaily.com/updated-the-best-english-voice-generator-to-convert-text-into-desired-accent/"><u>Updated The Best English Voice Generator To Convert Text Into Desired Accent</u></a></li>
+<li><a href="https://ai-topics.techidaily.com/updated-tips-for-perfecting-your-talking-face-content-a-complete-guide/"><u>Updated Tips for Perfecting Your Talking Face Content A Complete Guide</u></a></li>
 </ul></div>
 

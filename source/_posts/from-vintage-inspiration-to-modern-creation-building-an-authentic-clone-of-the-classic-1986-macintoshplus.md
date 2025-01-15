@@ -1,7 +1,7 @@
 ---
 title: "From Vintage Inspiration to Modern Creation: Building an Authentic Clone of the Classic 1986 Macintosh+"
-date: 2025-01-03T18:11:27.794Z
-updated: 2025-01-09T17:54:10.319Z
+date: 2025-01-11T10:58:18.324Z
+updated: 2025-01-15T02:12:41.697Z
 tags:
   - desktop
 categories:
@@ -32,7 +32,7 @@ The 2024 World Server Throwing Championship (WSTC) organizers are[calling for en
  We think there is plenty of room for improvement on the 2022 winning throw. Remember, the world record distance for throwing a 16-pound shot put is nearly 75 feet. For another comparison, in the Swedish sport of Stångstörtning, a roughly 57-pound log is tossed, with the world record distance being 32 feet. Much will depend on how well-tuned and trained the WSTC 2024 athletes are…
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/XS1nQCe95LU?si=A2dhdFkSAI61_nKA" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/9ECz3oZ8NrQ?si=86vkwkDJo9HQXpzt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Stay On the Cutting Edge: Get the Tom's Hardware Newsletter
@@ -60,19 +60,22 @@ The 2024 World Server Throwing Championship (WSTC) organizers are[calling for en
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-sure.techidaily.com/024-approved-legality-check-taking-screencasts-of-youtube-videos/"><u>[New] 2024 Approved Legality Check Taking Screencasts of YouTube Videos</u></a></li>
-<li><a href="https://screen-capture.techidaily.com/new-capture-phone-gaming-moments-on-samsung-devices/"><u>[New] Capture Phone Gaming Moments on Samsung Devices</u></a></li>
-<li><a href="https://article-posts.techidaily.com/new-in-2024-simplest-way-win-clownfish-vocal-alteration-tool/"><u>[New] In 2024, Simplest Way Win Clownfish Vocal Alteration Tool</u></a></li>
-<li><a href="https://fox-info.techidaily.com/new-professional-perception-pioneering-hdr-art-with-photoshop-for-2024/"><u>[New] Professional Perception Pioneering HDR Art with PhotoShop for 2024</u></a></li>
-<li><a href="https://some-approaches.techidaily.com/updated-unpacking-the-performance-a-complete-guide-to-lg-bp350-monitors/"><u>[Updated] Unpacking the Performance A Complete Guide to LG BP350 Monitors</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/channel-identity-visualization-the-ultimate-toolkit-of-10-for-2024/"><u>Channel Identity Visualization The Ultimate Toolkit of 10 for 2024</u></a></li>
-<li><a href="https://screen-mirror.techidaily.com/in-2024-how-to-cast-zte-axon-40-lite-screen-to-pc-using-wifi-drfone-by-drfone-android/"><u>In 2024, How to Cast ZTE Axon 40 Lite Screen to PC Using WiFi | Dr.fone</u></a></li>
-<li><a href="https://ai-topics.techidaily.com/new-2024-approved-what-is-ai-pixel-art-generator/"><u>New 2024 Approved What Is AI Pixel Art Generator?</u></a></li>
-<li><a href="https://ai-topics.techidaily.com/new-a-detailed-review-of-murfai-ai-text-to-speech-tool-for-2024/"><u>New A Detailed Review of Murf.ai AI Text-to-Speech Tool for 2024</u></a></li>
-<li><a href="https://ai-topics.techidaily.com/new-what-is-ai-pixel-art-generator/"><u>New What Is AI Pixel Art Generator?</u></a></li>
-<li><a href="https://win11-tips.techidaily.com/secure-multi-media-suite-by-movavi-your-trustworthy-digital-tool/"><u>Secure Multi-Media Suite by Movavi: Your Trustworthy Digital Tool</u></a></li>
-<li><a href="https://ai-topics.techidaily.com/updated-2024-approved-what-is-an-ai-text-generator/"><u>Updated 2024 Approved What Is an AI Text Generator?</u></a></li>
-<li><a href="https://ai-topics.techidaily.com/updated-how-to-create-funny-talking-avatars-using-oddcast-text-to-speech/"><u>Updated How to Create Funny Talking Avatars Using Oddcast Text to Speech</u></a></li>
-<li><a href="https://youtube-video-recordings.techidaily.com/youtube-clip-maker/"><u>Youtube Clip Maker</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/uzzing-beats-leading-music-distortion-apps/"><u>[New] Buzzing Beats Leading Music Distortion Apps</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/updated-2024-approved-tech-triad-analysis-unraveling-the-vr-ar-mr-tapestry/"><u>[Updated] 2024 Approved Tech Triad Analysis Unraveling the VR-AR-MR Tapestry</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/updated-mastering-instagram-ringtone-making-solo/"><u>[Updated] Mastering Instagram Ringtone Making Solo</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/2024-approved-leveraging-chromes-picture-in-picture-for-multi-screen-browsing/"><u>2024 Approved Leveraging Chrome's Picture-In-Picture for Multi-Screen Browsing</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/2024-approved-unraveling-lightrooms-potential-on-android-devices/"><u>2024 Approved Unraveling Lightroom's Potential on Android Devices</u></a></li>
+<li><a href="https://ai-topics.techidaily.com/in-2024-how-to-create-funny-talking-avatars-using-oddcast-text-to-speech-tech/"><u>In 2024, How to Create Funny Talking Avatars Using Oddcast Text to Speech Tech</u></a></li>
+<li><a href="https://ai-topics.techidaily.com/in-2024-the-power-of-ai-thumbnail-generators/"><u>In 2024, The Power of AI Thumbnail Generators</u></a></li>
+<li><a href="https://ai-topics.techidaily.com/new-in-2024-make-your-pictures-speak-online-with-the-best-tools-recommended/"><u>New In 2024, Make Your Pictures Speak Online With the Best Tools Recommended</u></a></li>
+<li><a href="https://hardware-help.techidaily.com/resolving-windows-11s-troublesome-bluetooth-connectivity-woes-fixed/"><u>Resolving Windows 11'S Troublesome Bluetooth Connectivity Woes - Fixed!</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/stand-out-creating-unique-thumbnails-for-your-youtube-videos-for-2024/"><u>Stand Out Creating Unique Thumbnails for Your YouTube Videos for 2024</u></a></li>
+<li><a href="https://extra-information.techidaily.com/ultimate-tutorial-for-srt-tagging-in-mp4-videos-2024/"><u>Ultimate Tutorial for SRT Tagging in MP4 Videos 2024</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/unveiling-the-excellence-of-the-premium-samsung-galaxy-s1-0-smartphone/"><u>Unveiling the Excellence of the Premium Samsung Galaxy S1 0 Smartphone</u></a></li>
+<li><a href="https://ai-topics.techidaily.com/updated-2024-approved-exploring-the-finest-text-to-speech-male-voice-tools-for-natural-output/"><u>Updated 2024 Approved Exploring the Finest Text-to-Speech Male Voice Tools for Natural Output</u></a></li>
+<li><a href="https://ai-topics.techidaily.com/updated-exploring-the-finest-text-to-speech-male-voice-tools-for-natural-output-for-2024/"><u>Updated Exploring the Finest Text-to-Speech Male Voice Tools for Natural Output for 2024</u></a></li>
+<li><a href="https://ai-topics.techidaily.com/updated-in-2024-ready-to-dive-into-photo-talking-videos-heres-what-you-need-to-know/"><u>Updated In 2024, Ready To Dive Into Photo Talking Videos? Heres What You Need To Know</u></a></li>
+<li><a href="https://ai-topics.techidaily.com/updated-what-is-ai-pixel-art-generator-for-2024/"><u>Updated What Is AI Pixel Art Generator for 2024</u></a></li>
+<li><a href="https://ai-topics.techidaily.com/what-is-an-ai-script-generator-for-2024/"><u>What Is an AI Script Generator for 2024</u></a></li>
 </ul></div>
 
