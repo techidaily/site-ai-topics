@@ -1,7 +1,7 @@
 ---
 title: Easy Steps to Make a Talking Avatar with AI From Any Photos
-date: 2025-01-12T03:28:31.287Z
-updated: 2025-01-14T16:06:30.249Z
+date: 2025-01-16T19:23:49.297Z
+updated: 2025-01-21T16:03:50.627Z
 tags: 
   - ai photos
   - talking photos
@@ -24,10 +24,6 @@ This time, we'll walk you through the process of making a talking AI avatar, inc
 When **creating your own talking avatar**, you have the option to use your own images or select from available AI templates. Then, these avatars will be refined through AI processing.
 
 With the emergence of talking AI avatars, the possibilities for their usage across various domains have also expanded. Here are some things you can do when learning **how to create talking avatar**:
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/0OxkndZbIA4?si=TWJlkTbYKsVag8-q" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### 1\. Content creation
 
@@ -63,6 +59,10 @@ Talking avatar platforms often provide a library of royalty-free assets and temp
 
 One of the key features of talking avatars is their ability to narrate text from a script using synthetic voices. When you **create your own talking avatar**, you can input a written script, and the avatar will generate speech based on the provided text. You can also use your own recorded voice for your talking avatar.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/w7c5EHp-GDw?si=UTw7lZR0wTmRjp8W" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### 3\. AI script
 
 No idea where to start writing your script? Many talking avatar platforms can leverage artificial intelligence to help you write and enhance the flexibility of your texts. This feature helps streamline the scriptwriting process and saves users valuable time and effort.
@@ -70,6 +70,10 @@ No idea where to start writing your script? Many talking avatar platforms can le
 ### 4\. Auto-translation
 
 Auto-translation features are essential for engaging global audiences. Talking Avatar enables avatars to automatically translate your content into various languages. This ensures that viewers from diverse linguistic backgrounds can understand and engage with your content effectively and facilitates communication on a global scale.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/-G7cU8dYvuI?si=JaKqRcW6qq9CDvty" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Part 3\. How To Create Your Own Talking Avatar With the Easiest Way
 
@@ -151,10 +155,6 @@ Hotels, resorts, and travel agencies can learn **how to create talking avatar** 
 
 In the field of education, talking AI avatars are valuable tools for delivering engaging and interactive lessons. They can serve as virtual tutors, guiding students through complex concepts with attractive visual aids and engaging explanations.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/6KXVWj6Ar1M?si=Cd_jktmoN3e9OzH3" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ### 5\. Retail marketing campaigns
 
 If you are a retailer marketer, you can utilize talking AI avatars to enhance your marketing campaigns and customer interactions. These avatars can act as virtual sales assistants, providing product recommendations, and answering frequently asked questions. By using a talking avatar, you can elevate customer engagement, increase sales, and transform your e-commerce strategy.
@@ -180,10 +180,6 @@ No idea where to start writing your script? Many talking avatar platforms can le
 ### 4\. Auto-translation
 
 Auto-translation features are essential for engaging global audiences. Talking Avatar enables avatars to automatically translate your content into various languages. This ensures that viewers from diverse linguistic backgrounds can understand and engage with your content effectively and facilitates communication on a global scale.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/LI9nKlbhnw8?si=uUXFVbuEqXtFHHv0" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Part 3\. How To Create Your Own Talking Avatar With the Easiest Way
 
@@ -334,6 +330,10 @@ To create a talking photo on mobile, follow the steps outlined below:
 
 ![virbo AI-generated talking photo](https://images.wondershare.com/virbo/article/2024/02/how-to-make-a-picture-speak-05.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/c1yHj02oP3w?si=mwi3FyP0p68gkBqV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 1. Once you've chosen the AI talking photo you prefer, simply click on the **Create Video**button located below.
 
 ![virbo create video](https://images.wondershare.com/virbo/article/2024/02/how-to-make-a-picture-speak-06.jpg)
@@ -341,6 +341,10 @@ To create a talking photo on mobile, follow the steps outlined below:
 1. Input your text and select a voiceover from the options below to create the audio for your video. Alternatively, you can record your voice by selecting **record audio**. When finished editing, tap **Generate Video**to export it.
 
 ![input text record audio](https://images.wondershare.com/virbo/article/2024/02/how-to-make-a-picture-speak-07.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/fvAC8jgs62o?si=xqEXZ7dpAXZ4sZ7A" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### **For PC**
 
@@ -361,6 +365,10 @@ To **make pictures talk online** or on your PC, here are the following steps:
 1. Click the Upload button to select your image from the computer and open it. Tip: Choose a photo with just one person's face in it.
 
 ![export button pc](https://images.wondershare.com/virbo/article/2024/02/how-to-make-a-picture-speak-online-11.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/S3Th6oa_isA?si=TTQ013BB9beUM4x6" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 1. Once uploaded, move your cursor to the Next button. Allow the app to set up your studio.
 
@@ -415,10 +423,6 @@ AI talking photos also address the needs of individuals with visual impairments 
 ### ● **Creating Lasting Memories**
 
 Through **making your image talk**, they possess the ability to transform fleeting moments into enduring memories. The addition of audio narration enhances the emotional resonance of the images, making them more vivid and memorable.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/jpdGEJJwMLY?si=eKgXOPpNeYvYKcel" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### ● **Facilitating Artistic Expression**
 
@@ -532,10 +536,6 @@ Cartoons have come a long way, from cave paintings and symbolic drawings to AI-p
 
 ![making cartoon images with best tools](https://images.wondershare.com/virbo/article/2024/02/creating-cartoon-conversation-images-with-top-tools-1.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/3hS27nZVi9Y?si=_Zqj_l4a4XkPqT2S" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## Part 1\. Make Realistic Talking Cartoon Conversation Avatars With Wondershare Virbo
 
 Standing out as an influencer today can be difficult since you should always look for new trends to boost engagement. If you're struggling to stay on top of the rapidly changing trends, [Wondershare Virbo](https://virbo.wondershare.com/) is clearly right here for you. It allows you to add audio clips to your photos to engage people emotionally and send personal messages.
@@ -625,10 +625,6 @@ With the simple interface of this tool, you can bring your character to life in 
 1. With the online editor of Brush Ninja, you can draw and paint freely.
 2. Users can explore different brushes and colors to make 2D **speaking cartoon images**.
 3. This tool allows you to introduce multiple frames and sound effects for appealing animations.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/xIP8ktrmOdg?si=zRnjbGzM6PDx2jCq" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### Steps To Create Animations With Brush Ninja
 
@@ -733,10 +729,6 @@ Once you've installed [Wondershare Virbo](https://virbo.wondershare.com/ai-video
 
 ![How to make talking emoji on iPhone](https://images.wondershare.com/virbo/article/2024/02/speak-emoji-iphone-4.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/FATJWpNYmio?si=72ugPTb3vJXz6cAM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 [Get Started Online](https://tools.techidaily.com/wondershare/virbo/download/) [Free Download](https://tools.techidaily.com/wondershare/virbo/download/)
 
 **Step 2:** Upload Your Memoji Photo
@@ -829,6 +821,10 @@ Once you've installed [Wondershare Virbo](https://virbo.wondershare.com/ai-video
 Select "Upload a photo" and pick the Memoji image saved in your camera roll.
 
 ![Upload your iPhone talking emoji photo](https://images.wondershare.com/virbo/article/2024/02/speak-emoji-iphone-5.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/qNrOsjUdRz0?si=xGzhmNmtgxNTsRxN" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 **Step 3:** Customize and Export Your Talking Memoji Video
 
@@ -1059,6 +1055,10 @@ You can click on the languages menu to access a new pop-up window. In this windo
 Once you have selected the language and gender, it is time to adjust the voiceover properties. Drag the “Volume” bar to increase or decrease the volume. You can also change the pitch by adjusting the “Pitch” bar.
 
 ![manage other voiceover properties](https://images.wondershare.com/virbo/article/2024/02/know-more-about-talking-head-videos-10.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/C3cJe7Wgn6I?si=EckDFML-VJ_2sYz8" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 #### Step 6\. Export Your Talking Head Video
 
@@ -1984,10 +1984,6 @@ Cons
 
 ![Epic AI talking photo online](https://images.wondershare.com/virbo/article/2024/02/photo-speak-online-9.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Jng92DT1n_Y?si=EdMRoNAFi0Q6mP7G" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ### 10\. DeepBrain AI
 
 DeepBrain AI is an innovative artificial intelligence dedicated to creating high-quality visual content. Their AI talking head video generator produces lifelike AI portraits, **makes picture talk online**, and allows you to transform text into video in only 5 minutes.
@@ -2044,6 +2040,10 @@ After selecting the talking avatar, input text and choose a voiceover option fro
 If you'd rather use your own voice, utilize the Wondershare Virbo mobile app and tap "record audio."
 
 ![Generate and customize talking photo online](https://images.wondershare.com/virbo/article/2024/02/photo-speak-online-13.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Iz2LYWd8EqI?si=G_3CqFRAmeVPczjj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 **Step 4:** Download the talking avatar
 
@@ -2209,7 +2209,7 @@ Cons
 ![Blabberize talking photo online](https://images.wondershare.com/virbo/article/2024/02/photo-speak-online-7.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/K4lRBnNnd9k?si=5e0MbdOz-fF6Ry_k" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/15Ju8Cb4UZ8?si=5wdiQXdz1BOxIkDH" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### 8\. Good Trust
@@ -2285,6 +2285,10 @@ Cons
 
 ![DeepBrain AI talking photo online](https://images.wondershare.com/virbo/article/2024/02/photo-speak-online-10.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/slm2NjVPNtk?si=9ow6g1ucmf0TnT4T" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### Author’s Verdict
 
 After reviewing the various AI-powered tools for creating **talking photo online**, Wondershare Virbo stands out as a versatile and user-friendly option. With its impressive library of over 300 free AI avatars and features such as natural animation and accurate lip synchronization, Virbo excels in making realistic and high-quality AI photo-talking videos.
@@ -2310,10 +2314,6 @@ Visit the [Wondershare Virbo website](https://tools.techidaily.com/wondershare/v
 If you prefer to use your own photo, click on "Upload Photo" and pick the portrait you want to use as your talking avatar. Proceed by clicking next.
 
 ![Upload a photo to create talking photo online](https://images.wondershare.com/virbo/article/2024/02/photo-speak-online-12.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/mMYEK2gtY5c?si=ytxNz_JHZkTrwb4b" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 **Step 3:** Customize your video
 
@@ -2345,16 +2345,21 @@ One popular platform that offers photo talking online capabilities is Wondershar
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://visual-screen-recording.techidaily.com/updated-in-2024-cut-to-the-chase-newest-method-for-idevice-screen-recordings-2023/"><u>[Updated] In 2024, Cut-to-the-Chase Newest Method for iDevice Screen Recordings, 2023</u></a></li>
-<li><a href="https://extra-resources.techidaily.com/2024-approved-asus-proarts-pa-329q-a-comprehensive-examination-of-high-end-monitoring/"><u>2024 Approved Asus ProArt's PA 329Q A Comprehensive Examination of High-End Monitoring</u></a></li>
-<li><a href="https://tech-hub.techidaily.com/boost-your-ai-communication-learn-the-best-7-strategies-to-craft-effective-prompts/"><u>Boost Your AI Communication: Learn the Best 7 Strategies to Craft Effective Prompts</u></a></li>
-<li><a href="https://extra-resources.techidaily.com/elevate-your-content-with-these-24-best-video-translating-tools/"><u>Elevate Your Content with These 24 Best Video Translating Tools</u></a></li>
-<li><a href="https://extra-resources.techidaily.com/fresh-perspectives-on-digital-health-promotion/"><u>Fresh Perspectives on Digital Health Promotion</u></a></li>
-<li><a href="https://ai-topics.techidaily.com/in-2024-create-talking-cartoon-images-using-top-tools/"><u>In 2024, Create Talking Cartoon Images Using Top Tools</u></a></li>
-<li><a href="https://ai-topics.techidaily.com/new-in-2024-top-10-ai-talking-avatars-revolutionizing-communication/"><u>New In 2024, Top 10 AI-Talking Avatars Revolutionizing Communication</u></a></li>
-<li><a href="https://ai-topics.techidaily.com/new-in-2024-top-10-talking-photo-online-tools-you-have-to-try/"><u>New In 2024, Top 10 Talking Photo Online Tools You Have To Try</u></a></li>
-<li><a href="https://common-error.techidaily.com/tango-evdo-rev-a-6-mbits-download/"><u>Tango – EVDO Rev A, 6 Mbit/S Download</u></a></li>
-<li><a href="https://ai-topics.techidaily.com/updated-in-2024-what-is-chatgpt/"><u>Updated In 2024, What Is ChatGPT?</u></a></li>
-<li><a href="https://ai-topics.techidaily.com/what-are-ai-tools/"><u>What Are AI Tools?</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/new-2024-approved-step-by-step-instruction-on-downloading-installing-and-using-ez-grabber/"><u>[New] 2024 Approved Step-by-Step Instruction on Downloading, Installing & Using EZ Grabber</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/new-navigate-to-recent-fb-views-with-ease-2023-guide-for-2024/"><u>[New] Navigate to Recent FB Views with Ease, 2023 Guide for 2024</u></a></li>
+<li><a href="https://ai-topics.techidaily.com/2024-approved-users-guide-how-to-create-photo-talking-videos-with-the-best-tools/"><u>2024 Approved Users Guide How To Create Photo Talking Videos With the Best Tools?</u></a></li>
+<li><a href="https://discover-blog.techidaily.com/cookiebot-enhanced-optimized-for-smart-and-efficient-online-tracking/"><u>Cookiebot-Enhanced: Optimized for Smart and Efficient Online Tracking</u></a></li>
+<li><a href="https://common-error.techidaily.com/effective-solutions-for-directx-encountered-an-unrecoverable-error-scenarios/"><u>Effective Solutions for 'DirectX Encountered an Unrecoverable Error' Scenarios</u></a></li>
+<li><a href="https://change-location.techidaily.com/how-to-fix-androidprocessmedia-has-stopped-on-vivo-v29e-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>How to Fix Android.Process.Media Has Stopped on Vivo V29e | Dr.fone</u></a></li>
+<li><a href="https://android-frp.techidaily.com/in-2024-a-quick-guide-to-htc-u23-pro-frp-bypass-instantly-by-drfone-android/"><u>In 2024, A Quick Guide to HTC U23 Pro FRP Bypass Instantly</u></a></li>
+<li><a href="https://ai-topics.techidaily.com/in-2024-get-closer-to-the-artistic-marvels-of-ai-portrait-generator/"><u>In 2024, Get Closer to the Artistic Marvels of AI Portrait Generator</u></a></li>
+<li><a href="https://win-net.techidaily.com/is-it-wise-to-switch-to-windows-n-on-your-music-production-machine-read-why-not-traktor-presets-guide/"><u>Is It Wise to Switch to Windows N on Your Music Production Machine? Read Why Not! | Traktor Presets Guide</u></a></li>
+<li><a href="https://ai-topics.techidaily.com/new-2024-approved-best-6-celebrity-text-to-speech-ai-voice-generators-you-may-like/"><u>New 2024 Approved Best 6 Celebrity Text to Speech AI Voice Generators You May Like</u></a></li>
+<li><a href="https://ai-topics.techidaily.com/new-easy-steps-to-create-talking-memoji-on-iphone-free/"><u>New Easy Steps To Create Talking Memoji on iPhone Free</u></a></li>
+<li><a href="https://ai-topics.techidaily.com/new-what-is-an-ai-avatar-for-2024/"><u>New What Is an AI Avatar for 2024</u></a></li>
+<li><a href="https://win-workspace.techidaily.com/step-by-step-guide-finding-your-computers-details-via-control-panel-tips-from-yl-computing/"><u>Step-by-Step Guide: Finding Your Computer's Details via Control Panel - Tips From YL Computing</u></a></li>
+<li><a href="https://blog-min.techidaily.com/top-13-iphone-screen-recording-apps-the-ultimate-list/"><u>Top 13 iPhone Screen Recording Apps - The Ultimate List</u></a></li>
+<li><a href="https://ai-topics.techidaily.com/updated-top-6-celebrity-text-to-speech-ai-voice-generators-you-may-like/"><u>Updated Top 6 Celebrity Text to Speech AI Voice Generators You May Like</u></a></li>
+<li><a href="https://ai-topics.techidaily.com/what-is-an-ai-video-maker-for-2024/"><u>What Is an AI Video Maker for 2024</u></a></li>
 </ul></div>
 
