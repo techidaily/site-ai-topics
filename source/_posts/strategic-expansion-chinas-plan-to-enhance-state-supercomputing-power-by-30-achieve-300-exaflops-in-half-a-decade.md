@@ -1,7 +1,7 @@
 ---
 title: "Strategic Expansion: China's Plan to Enhance State Supercomputing Power by 30%%, Achieve 300 Exaflops in Half a Decade"
-date: 2025-01-14T16:07:37.415Z
-updated: 2025-01-21T16:17:11.104Z
+date: 2025-01-25T16:39:13.642Z
+updated: 2025-01-28T01:23:35.352Z
 tags:
   - desktop
 categories:
@@ -14,7 +14,7 @@ thumbnail: https://thmb.techidaily.com/a42282b650e186f3549f7d2aa960eb18debb612fb
 [Hewlett Packard](https://www.tomshardware.com/tag/hewlett-packard) [Enterprise](https://www.tomshardware.com/tag/enterprise) (HPE), one of the world's largest makers of servers, has initiated a legal battle against Inspur Group, China's largest server maker, and its affiliates, alleging server patent infringements. HPE accuses Inspur of engaging in deceptive practices and renaming its subsidiaries in the U.S. to continue its business with American companies despite being included into the Entity List.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/HtM7d4dpN1I?si=2vN_xgVGD4eYGORu" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/OZQJUTr44rA?si=ADA0nD1VnXjR_sH0" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## HPE: Inspur infringes our patents
@@ -28,7 +28,7 @@ thumbnail: https://thmb.techidaily.com/a42282b650e186f3549f7d2aa960eb18debb612fb
  LATEST VIDEOS FROM tomshardware Tom's Hardware
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/PUDdKOsEN74?si=tkZf-KVinjuwmgx9" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/aa6vSdt1elM?si=qPhmO-hoWVIPBnnC" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Despite being on the Entity List, Inspur continues operations in the U.S
@@ -38,7 +38,7 @@ thumbnail: https://thmb.techidaily.com/a42282b650e186f3549f7d2aa960eb18debb612fb
  The complaint claims that Inspur that inspur continues its operations in the United States under Aivres Systems and Betapex. Inspur allegedly removed its branding from products sold in the U.S. and continues to sell them. For example, Inspur's IR5280M6 server is Aivres's 5280M6 machine, it has the same specification and design, according to HPE's complaint. Meanwhile, Inspur has also worked as a contract maker of servers, according to The Register. Yet, if a U.S. entity plans to work with Inspur (or any other party from the Entity List), it has to get a special license from the U.S. government.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/OZQJUTr44rA?si=ADA0nD1VnXjR_sH0" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/HtM7d4dpN1I?si=2vN_xgVGD4eYGORu" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Stay On the Cutting Edge: Get the Tom's Hardware Newsletter
@@ -64,24 +64,14 @@ thumbnail: https://thmb.techidaily.com/a42282b650e186f3549f7d2aa960eb18debb612fb
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-helps.techidaily.com/new-2024-approved-mastering-digital-image-cropping-techniques/"><u>[New] 2024 Approved Mastering Digital Image Cropping Techniques</u></a></li>
-<li><a href="https://extra-hints.techidaily.com/new-compact-cameras-for-mobile-cinematography/"><u>[New] Compact Cameras for Mobile Cinematography</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/new-decoding-youtube-income-how-much-does-each-1000-viewer-earn-for-2024/"><u>[New] Decoding YouTube Income How Much Does Each 1,000 Viewer Earn for 2024</u></a></li>
-<li><a href="https://fox-helps.techidaily.com/new-in-2024-ultimate-editing-techniques-for-final-cut-pro-professionals/"><u>[New] In 2024, Ultimate Editing Techniques for Final Cut Pro Professionals</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/updated-in-2024-tweeted-timelines-a-complete-guide-to-video-backups/"><u>[Updated] In 2024, Tweeted Timelines A Complete Guide to Video Backups</u></a></li>
-<li><a href="https://on-screen-recording.techidaily.com/2024-approved-skype-capture-methods-seamless-transition-between-oses/"><u>2024 Approved Skype Capture Methods Seamless Transition Between OSes</u></a></li>
-<li><a href="https://technical-tips.techidaily.com/comprehensive-overview-identifying-your-macs-operating-system/"><u>Comprehensive Overview: Identifying Your Mac's Operating System</u></a></li>
-<li><a href="https://android-unlock.techidaily.com/delete-gmail-account-withwithout-password-on-gionee-f3-pro-by-drfone-android/"><u>Delete Gmail Account With/Without Password On Gionee F3 Pro</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/24-experience-the-new-unleash-a-set-of-50-designs-for-free/"><u>In 2024, Experience the New Unleash a Set of 50 Designs for Free</u></a></li>
-<li><a href="https://android-transfer.techidaily.com/in-2024-how-can-you-transfer-files-from-honor-play-7t-to-iphone-151413-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, How Can You Transfer Files From Honor Play 7T To iPhone 15/14/13? | Dr.fone</u></a></li>
-<li><a href="https://ai-topics.techidaily.com/in-2024-what-is-an-ai-video-maker/"><u>In 2024, What Is an AI Video Maker?</u></a></li>
-<li><a href="https://ai-topics.techidaily.com/new-2024-approved-what-is-ai-advertising/"><u>New 2024 Approved What Is AI Advertising?</u></a></li>
-<li><a href="https://ai-topics.techidaily.com/new-create-talking-cartoon-images-using-top-tools-for-2024/"><u>New Create Talking Cartoon Images Using Top Tools for 2024</u></a></li>
-<li><a href="https://ai-topics.techidaily.com/new-top-10-ai-talking-avatars-revolutionizing-communication/"><u>New Top 10 AI-Talking Avatars Revolutionizing Communication</u></a></li>
-<li><a href="https://ai-topics.techidaily.com/new-what-is-an-ai-editor-for-2024/"><u>New What Is an AI Editor for 2024</u></a></li>
-<li><a href="https://ai-topics.techidaily.com/updated-easy-guide-how-to-make-talking-head-videos/"><u>Updated Easy Guide How To Make Talking Head Videos</u></a></li>
-<li><a href="https://ai-topics.techidaily.com/updated-narakeet-review-convenient-text-to-speech-voice-maker-for-2024/"><u>Updated Narakeet Review Convenient Text to Speech Voice Maker for 2024</u></a></li>
-<li><a href="https://ai-topics.techidaily.com/updated-what-is-an-ai-presentation-maker-in-2024/"><u>Updated What Is an AI Presentation Maker, In 2024</u></a></li>
-<li><a href="https://ai-topics.techidaily.com/updated-what-is-an-ai-tool-for-2024/"><u>Updated What Is an AI Tool for 2024</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/updated-in-2024-windowsmac-recording-skype-chats-and-calls/"><u>[Updated] In 2024, Windows/Mac Recording Skype Chats & Calls</u></a></li>
+<li><a href="https://ai-topics.techidaily.com/2024-approved-the-recommended-natural-ai-hindi-voice-generator/"><u>2024 Approved The Recommended Natural AI Hindi Voice Generator</u></a></li>
+<li><a href="https://ai-topics.techidaily.com/5-best-realistic-text-to-speech-ai-voice-generators-you-may-like/"><u>5 Best Realistic Text to Speech AI Voice Generators You May Like</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/in-2024-hype-generator-chief-architect/"><u>In 2024, Hype Generator Chief Architect</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/in-2024-veiled-realities-an-insight-into-story-viewers-world/"><u>In 2024, Veiled Realities An Insight Into Story Viewers' World</u></a></li>
+<li><a href="https://desktop-recording.techidaily.com/in-2024-walking-dead-top-picks-for-horror-gamers/"><u>In 2024, Walking Dead Top Picks for Horror Gamers</u></a></li>
+<li><a href="https://ai-topics.techidaily.com/new-what-is-ai-voice-over/"><u>New What Is AI Voice Over?</u></a></li>
+<li><a href="https://ai-topics.techidaily.com/new-what-is-an-ai-video-editor-in-2024/"><u>New What Is an AI Video Editor, In 2024</u></a></li>
+<li><a href="https://video-screen-grab.techidaily.com/professional-video-grabber-for-win10-pcs/"><u>Professional Video Grabber for Win10 PCs</u></a></li>
 </ul></div>
 

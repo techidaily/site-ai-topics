@@ -1,7 +1,7 @@
 ---
 title: "Experience Music Creation with Tulip: The Budget-Friendly MicroPython-Powered Computer - Only $59"
-date: 2025-01-15T16:03:34.531Z
-updated: 2025-01-21T16:50:09.338Z
+date: 2025-01-22T02:48:58.132Z
+updated: 2025-01-28T00:51:23.368Z
 tags:
   - desktop
 categories:
@@ -36,7 +36,7 @@ Over on Chinese videosharing platform Bilibili, user 苏打baka uploaded a lengt
  So, what happened? Did the static buildup short out the PC or something? Fortunately, nothing so mundane. Instead, the fan PC was tested at increasingly higher speeds until the[weighty cooler](https://www.tomshardware.com/news/noctua-fanless-cooler-enters-production) was violently flung from the PC in the last moments of the original video. No wonder Sodabaka hid behind a riot shield for much of the video demo.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/aG3NRuHrIJg?si=HwzwD0RXmrzIXX1V" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/M5pwd2mwaQQ?si=qyZHgdTlbQbc32Mp" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Stay On the Cutting Edge: Get the Tom's Hardware Newsletter
@@ -62,14 +62,16 @@ Over on Chinese videosharing platform Bilibili, user 苏打baka uploaded a lengt
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://video-screen-grab.techidaily.com/new-cross-platform-hulu-playback-mastery-a-how-to-guide-for-2024/"><u>[New] Cross-Platform Hulu Playback Mastery - A How-To Guide for 2024</u></a></li>
-<li><a href="https://screen-mirroring-recording.techidaily.com/from-words-to-memories-recording-with-iphone/"><u>From Words to Memories Recording with iPhone</u></a></li>
-<li><a href="https://extra-support.techidaily.com/in-2024-navigating-whatsapps-vocal-messaging-system/"><u>In 2024, Navigating WhatsApp's Vocal Messaging System</u></a></li>
-<li><a href="https://ai-topics.techidaily.com/new-in-2024-what-is-ai-text-to-video/"><u>New In 2024, What Is AI Text to Video?</u></a></li>
-<li><a href="https://review-topics.techidaily.com/possible-solutions-to-restore-deleted-videos-from-xiaomi-redmi-13c-by-fonelab-android-recover-video/"><u>Possible solutions to restore deleted videos from Xiaomi Redmi 13C</u></a></li>
-<li><a href="https://some-tips.techidaily.com/top-rated-voip-solutions-of-2022-emulate-corporate-communication-systems-techadvisor/"><u>Top Rated VoIP Solutions of 2022: Emulate Corporate Communication Systems | TechAdvisor</u></a></li>
-<li><a href="https://ai-topics.techidaily.com/updated-2024-approved-the-most-efficient-tools-to-convert-text-to-mp3-with-the-best-natural-voices/"><u>Updated 2024 Approved The Most Efficient Tools to Convert Text to MP3 With the Best Natural Voices</u></a></li>
-<li><a href="https://ai-topics.techidaily.com/updated-in-2024-a-detailed-review-of-murfai-ai-text-to-speech-tool/"><u>Updated In 2024, A Detailed Review of Murf.ai AI Text-to-Speech Tool</u></a></li>
-<li><a href="https://ai-topics.techidaily.com/updated-in-depth-review-of-ivona-text-to-speech-by-nextup-technologies/"><u>Updated In-Depth Review of Ivona Text to Speech by NextUp Technologies</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/new-a-streamlined-approach-to-virtual-meeting-setup-zooming-on-android-devices-for-2024/"><u>[New] A Streamlined Approach to Virtual Meeting Setup Zooming on Android Devices for 2024</u></a></li>
+<li><a href="https://some-skills.techidaily.com/updated-understanding-and-implementing-slug-line-rules/"><u>[Updated] Understanding and Implementing Slug Line Rules</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/2024-approved-plunge-into-metaverse-top-8-high-tech-goggles-and-helmets/"><u>2024 Approved Plunge Into Metaverse Top 8 High-Tech Goggles & Helmets</u></a></li>
+<li><a href="https://fox-direct.techidaily.com/highlighting-progress-in-photo-shooting-algorithms/"><u>Highlighting Progress in Photo Shooting Algorithms</u></a></li>
+<li><a href="https://win-tips.techidaily.com/how-to-seamlessly-swap-your-hp-pavilion-15s-hard-drive-with-an-ssd-a-simple-step-by-step-manual/"><u>How To: Seamlessly Swap Your HP Pavilion 15'S Hard Drive with an SSD - A Simple Step-by-Step Manual</u></a></li>
+<li><a href="https://screen-mirroring-recording.techidaily.com/in-2024-exclusive-screenflow-examination-for-mac-users/"><u>In 2024, Exclusive ScreenFlow Examination for Mac Users</u></a></li>
+<li><a href="https://hardware-help.techidaily.com/insider-information-exposes-continued-stability-struggles-in-intel-processors-more-than-just-elevated-voltage-risks/"><u>Insider Information Exposes Continued Stability Struggles in Intel Processors — More than Just Elevated Voltage Risks</u></a></li>
+<li><a href="https://ai-topics.techidaily.com/new-easy-guide-how-to-make-talking-head-videos-for-2024/"><u>New Easy Guide How To Make Talking Head Videos for 2024</u></a></li>
+<li><a href="https://ai-topics.techidaily.com/new-what-is-chatgpt-in-2024/"><u>New What Is ChatGPT, In 2024</u></a></li>
+<li><a href="https://ai-topics.techidaily.com/updated-2024-approved-the-most-recommended-natural-ai-hindi-voice-generator/"><u>Updated 2024 Approved The Most Recommended Natural AI Hindi Voice Generator</u></a></li>
+<li><a href="https://ai-topics.techidaily.com/what-is-ai-marketing-for-2024/"><u>What Is AI Marketing for 2024</u></a></li>
 </ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: "From Vintage Inspiration to Modern Creation: Building an Authentic Clone of the Classic 1986 Macintosh+"
-date: 2025-01-17T18:31:05.310Z
-updated: 2025-01-21T18:10:40.632Z
+date: 2025-01-23T01:25:18.992Z
+updated: 2025-01-28T04:38:13.001Z
 tags:
   - desktop
 categories:
@@ -32,7 +32,7 @@ The 2024 World Server Throwing Championship (WSTC) organizers are[calling for en
  We think there is plenty of room for improvement on the 2022 winning throw. Remember, the world record distance for throwing a 16-pound shot put is nearly 75 feet. For another comparison, in the Swedish sport of Stångstörtning, a roughly 57-pound log is tossed, with the world record distance being 32 feet. Much will depend on how well-tuned and trained the WSTC 2024 athletes are…
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/wNhKhWc0wLc?si=1XLYV0sXV52Xc0lu" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/aIx71tPaWKg?si=lG5OiUe-M6eBJf5b" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Stay On the Cutting Edge: Get the Tom's Hardware Newsletter
@@ -60,21 +60,24 @@ The 2024 World Server Throwing Championship (WSTC) organizers are[calling for en
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-video-share.techidaily.com/updated-in-2024-cutting-edge-mp4-utilities-choosing-the-right-one-for-mac/"><u>[Updated] In 2024, Cutting Edge MP4 Utilities Choosing the Right One for Mac</u></a></li>
-<li><a href="https://ai-topics.techidaily.com/2024-approved-narakeet-review-convenient-text-to-speech-voice-maker/"><u>2024 Approved Narakeet Review Convenient Text to Speech Voice Maker</u></a></li>
-<li><a href="https://win-answers.techidaily.com/defeating-pc-game-crash-errors-in-sons-of-heavenwood-ultimate-fix-strategies/"><u>Defeating PC Game Crash Errors in Sons of Heavenwood: Ultimate Fix Strategies</u></a></li>
-<li><a href="https://desktop-recording.techidaily.com/duel-masters-switch-edition-the-best-of-ten-for-2024/"><u>Duel Masters Switch Edition - The Best of Ten for 2024</u></a></li>
-<li><a href="https://location-social.techidaily.com/how-to-pause-life360-location-sharing-for-samsung-galaxy-s24-ultra-drfone-by-drfone-virtual-android/"><u>How To Pause Life360 Location Sharing For Samsung Galaxy S24 Ultra | Dr.fone</u></a></li>
-<li><a href="https://screen-mirror.techidaily.com/in-2024-how-xiaomi-redmi-k70-mirror-screen-to-pc-drfone-by-drfone-android/"><u>In 2024, How Xiaomi Redmi K70 Mirror Screen to PC? | Dr.fone</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/24-raising-the-bar-youtubes-live-streaming-excellence/"><u>In 2024, Raising the Bar YouTube's Live Streaming Excellence</u></a></li>
-<li><a href="https://ai-topics.techidaily.com/new-exploring-the-magic-of-ai-selfie-generators-for-2024/"><u>New Exploring the Magic of AI Selfie Generators for 2024</u></a></li>
-<li><a href="https://ai-topics.techidaily.com/new-what-is-an-ai-tool/"><u>New What Is an AI Tool?</u></a></li>
-<li><a href="https://tech-revival.techidaily.com/swift-solutions-to-overcome-streaming-problems-on-gpt/"><u>Swift Solutions to Overcome Streaming Problems on GPT</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/top-3-asian-linguistic-titans-unveiled/"><u>Top 3 Asian Linguistic Titans Unveiled</u></a></li>
-<li><a href="https://ai-topics.techidaily.com/updated-in-2024-the-power-of-ai-thumbnail-generators/"><u>Updated In 2024, The Power of AI Thumbnail Generators</u></a></li>
-<li><a href="https://ai-topics.techidaily.com/updated-in-2024-tips-for-perfecting-your-talking-face-content-a-complete-guide/"><u>Updated In 2024, Tips for Perfecting Your Talking Face Content A Complete Guide</u></a></li>
-<li><a href="https://ai-topics.techidaily.com/updated-in-2024-what-is-ai-api/"><u>Updated In 2024, What Is AI API?</u></a></li>
-<li><a href="https://ai-topics.techidaily.com/updated-the-best-text-to-speech-online-tools-to-use/"><u>Updated The Best Text-to-Speech Online Tools To Use</u></a></li>
-<li><a href="https://tech-revival.techidaily.com/1725284935737-winxvideo-ai/"><u>Winxvideo AI가 도와주세요 - 기술을 이용한 동시대 비디오 품질 향상</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/he-insiders-guide-to-fixing-popular-youtube-short-problems/"><u>[New] The Insider's Guide to Fixing Popular YouTube Short Problems</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/new-unfollowers-alert-on-your-instagram-map/"><u>[New] Unfollowers Alert on Your Instagram Map</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ed-2024-approved-your-path-to-engaging-content-dive-into-our-free-youtube-ad-gallery/"><u>[Updated] 2024 Approved Your Path to Engaging Content – Dive Into Our Free YouTube Ad Gallery</u></a></li>
+<li><a href="https://ai-topics.techidaily.com/2024-approved-how-to-generate-speech-from-text-the-top-text-to-speech-converters/"><u>2024 Approved How To Generate Speech From Text | The Top Text-to-Speech Converters</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/docooler-usb-flash-drive-with-hd-camera-12-mp-is-it-worth-your-investment/"><u>Docooler USB Flash Drive with HD Camera (12 MP): Is It Worth Your Investment?</u></a></li>
+<li><a href="https://win11-tips.techidaily.com/elevate-your-gameplay-with-customized-amd-graphics-settings/"><u>Elevate Your Gameplay with Customized AMD Graphics Settings</u></a></li>
+<li><a href="https://ai-topics.techidaily.com/essential-tools-for-creating-dynamic-talking-avatars-for-2024/"><u>Essential Tools for Creating Dynamic Talking Avatars for 2024</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/how-to-mirror-pc-screen-to-realme-12plus-5g-phones-drfone-by-drfone-android/"><u>How to Mirror PC Screen to Realme 12+ 5G Phones? | Dr.fone</u></a></li>
+<li><a href="https://ai-topics.techidaily.com/in-2024-how-to-make-a-talking-ai-avatar-from-photos-easy-guide/"><u>In 2024, How to Make a Talking AI Avatar From Photos Easy Guide</u></a></li>
+<li><a href="https://ai-topics.techidaily.com/in-2024-the-best-tools-to-convert-text-to-mp3-with-the-best-natural-voices/"><u>In 2024, The Best Tools to Convert Text to MP3 With the Best Natural Voices</u></a></li>
+<li><a href="https://ai-topics.techidaily.com/make-your-pictures-speak-online-with-the-best-tools-recommended-for-2024/"><u>Make Your Pictures Speak Online With the Best Tools Recommended for 2024</u></a></li>
+<li><a href="https://ai-topics.techidaily.com/new-2024-approved-essential-tools-for-creating-dynamic-talking-avatars/"><u>New 2024 Approved Essential Tools for Creating Dynamic Talking Avatars</u></a></li>
+<li><a href="https://ai-topics.techidaily.com/new-in-depth-review-of-ivona-text-to-speech-converter-for-2024/"><u>New In-Depth Review of Ivona Text to Speech Converter for 2024</u></a></li>
+<li><a href="https://ai-topics.techidaily.com/new-what-is-an-ai-video-maker-in-2024/"><u>New What Is an AI Video Maker, In 2024</u></a></li>
+<li><a href="https://hardware-tips.techidaily.com/top-picks-s-ultimate-32-televisions-expert-recommendations-from-zdnet/"><u>Top Picks 'S Ultimate 32 Televisions - Expert Recommendations From ZDNet</u></a></li>
+<li><a href="https://some-skills.techidaily.com/unlocking-timer-power-with-zero-cost-for-2024/"><u>Unlocking Timer Power with Zero Cost for 2024</u></a></li>
+<li><a href="https://article-posts.techidaily.com/unveiling-the-most-economical-cloud-stores/"><u>Unveiling the Most Economical Cloud Stores</u></a></li>
+<li><a href="https://ai-topics.techidaily.com/updated-what-is-ai-voice-over/"><u>Updated What Is AI Voice Over?</u></a></li>
+<li><a href="https://fox-triigers.techidaily.com/windowshddcmd/"><u>Windows上でのHDDバックアップ:CMDを使った簡単なガイド</u></a></li>
 </ul></div>
 
