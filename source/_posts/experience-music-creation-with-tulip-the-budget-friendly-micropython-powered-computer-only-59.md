@@ -1,7 +1,7 @@
 ---
 title: "Experience Music Creation with Tulip: The Budget-Friendly MicroPython-Powered Computer - Only $59"
-date: 2025-01-22T02:48:58.132Z
-updated: 2025-01-28T00:51:23.368Z
+date: 2025-02-04T16:10:05.001Z
+updated: 2025-02-09T16:13:21.572Z
 tags:
   - desktop
 categories:
@@ -36,7 +36,7 @@ Over on Chinese videosharing platform Bilibili, user 苏打baka uploaded a lengt
  So, what happened? Did the static buildup short out the PC or something? Fortunately, nothing so mundane. Instead, the fan PC was tested at increasingly higher speeds until the[weighty cooler](https://www.tomshardware.com/news/noctua-fanless-cooler-enters-production) was violently flung from the PC in the last moments of the original video. No wonder Sodabaka hid behind a riot shield for much of the video demo.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/M5pwd2mwaQQ?si=qyZHgdTlbQbc32Mp" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/vFQCEZiYA08?si=xjIu5IAy77RlHWii" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Stay On the Cutting Edge: Get the Tom's Hardware Newsletter
@@ -62,16 +62,20 @@ Over on Chinese videosharing platform Bilibili, user 苏打baka uploaded a lengt
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-blue.techidaily.com/new-a-streamlined-approach-to-virtual-meeting-setup-zooming-on-android-devices-for-2024/"><u>[New] A Streamlined Approach to Virtual Meeting Setup Zooming on Android Devices for 2024</u></a></li>
-<li><a href="https://some-skills.techidaily.com/updated-understanding-and-implementing-slug-line-rules/"><u>[Updated] Understanding and Implementing Slug Line Rules</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/2024-approved-plunge-into-metaverse-top-8-high-tech-goggles-and-helmets/"><u>2024 Approved Plunge Into Metaverse Top 8 High-Tech Goggles & Helmets</u></a></li>
-<li><a href="https://fox-direct.techidaily.com/highlighting-progress-in-photo-shooting-algorithms/"><u>Highlighting Progress in Photo Shooting Algorithms</u></a></li>
-<li><a href="https://win-tips.techidaily.com/how-to-seamlessly-swap-your-hp-pavilion-15s-hard-drive-with-an-ssd-a-simple-step-by-step-manual/"><u>How To: Seamlessly Swap Your HP Pavilion 15'S Hard Drive with an SSD - A Simple Step-by-Step Manual</u></a></li>
-<li><a href="https://screen-mirroring-recording.techidaily.com/in-2024-exclusive-screenflow-examination-for-mac-users/"><u>In 2024, Exclusive ScreenFlow Examination for Mac Users</u></a></li>
-<li><a href="https://hardware-help.techidaily.com/insider-information-exposes-continued-stability-struggles-in-intel-processors-more-than-just-elevated-voltage-risks/"><u>Insider Information Exposes Continued Stability Struggles in Intel Processors — More than Just Elevated Voltage Risks</u></a></li>
-<li><a href="https://ai-topics.techidaily.com/new-easy-guide-how-to-make-talking-head-videos-for-2024/"><u>New Easy Guide How To Make Talking Head Videos for 2024</u></a></li>
-<li><a href="https://ai-topics.techidaily.com/new-what-is-chatgpt-in-2024/"><u>New What Is ChatGPT, In 2024</u></a></li>
-<li><a href="https://ai-topics.techidaily.com/updated-2024-approved-the-most-recommended-natural-ai-hindi-voice-generator/"><u>Updated 2024 Approved The Most Recommended Natural AI Hindi Voice Generator</u></a></li>
-<li><a href="https://ai-topics.techidaily.com/what-is-ai-marketing-for-2024/"><u>What Is AI Marketing for 2024</u></a></li>
+<li><a href="https://vimeo-videos.techidaily.com/new-in-2024-unveiling-the-hidden-potential-of-earnings-on-vimeo-platforms/"><u>[New] In 2024, Unveiling the Hidden Potential of Earnings on Vimeo Platforms</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/new-master-the-art-of-9gag-memes-tips-for-creativity-and-impact-for-2024/"><u>[New] Master the Art of 9GAG Memes Tips for Creativity and Impact for 2024</u></a></li>
+<li><a href="https://extra-information.techidaily.com/asmrs-good-side-benefits-revealed-now-for-2024/"><u>ASMR's Good Side Benefits Revealed Now for 2024</u></a></li>
+<li><a href="https://activate-lock.techidaily.com/bypass-icloud-activation-lock-with-imei-code-on-iphone-6-by-drfone-ios/"><u>Bypass iCloud Activation Lock with IMEI Code On iPhone 6</u></a></li>
+<li><a href="https://discover-deluxe.techidaily.com/des-astuces-pour-recuperer-vos-photosvideos-gopro-en-decalage-decran-lorsquelles-napparaissent-pas-sur-votre-pc/"><u>Des Astuces Pour Récupérer Vos Photos/Vidéos GoPro en Décalage D'écran Lorsqu'elles N'apparaissent Pas Sur Votre PC</u></a></li>
+<li><a href="https://facebook.techidaily.com/fb-transitioned-to-pure-renewable-power-source/"><u>FB Transitioned to Pure Renewable Power Source</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/in-2024-efficient-srt-to-sub-conversion-strategies/"><u>In 2024, Efficient SRT to SUB Conversion Strategies</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/in-2024-unleashing-memories-above-ground-top-tier-cloud-options-reviewed/"><u>In 2024, Unleashing Memories Above Ground Top-Tier Cloud Options Reviewed</u></a></li>
+<li><a href="https://ai-topics.techidaily.com/new-2024-approved-ai-portrait-generator-getting-closer-to-the-artistic-marvels/"><u>New 2024 Approved AI Portrait Generator Getting Closer to the Artistic Marvels</u></a></li>
+<li><a href="https://ai-topics.techidaily.com/new-2024-approved-what-is-ai-marketing/"><u>New 2024 Approved What Is AI Marketing?</u></a></li>
+<li><a href="https://ai-topics.techidaily.com/new-in-2024-what-is-an-ai-art-generator/"><u>New In 2024, What Is an AI Art Generator?</u></a></li>
+<li><a href="https://win-best.techidaily.com/step-by-step-solutions-for-fixing-pc-hardware-glitches-on-windows-by-yl-experts/"><u>Step-by-Step Solutions for Fixing PC Hardware Glitches on Windows by YL Experts</u></a></li>
+<li><a href="https://ai-topics.techidaily.com/updated-2024-approved-the-best-text-to-speech-online-tools-to-use/"><u>Updated 2024 Approved The Best Text-to-Speech Online Tools To Use</u></a></li>
+<li><a href="https://ai-topics.techidaily.com/updated-in-2024-how-to-make-a-talking-ai-avatar-from-photos-easy-guide/"><u>Updated In 2024, How to Make a Talking AI Avatar From Photos Easy Guide</u></a></li>
+<li><a href="https://ai-topics.techidaily.com/what-is-an-ai-presentation-maker-for-2024/"><u>What Is an AI Presentation Maker for 2024</u></a></li>
 </ul></div>
 

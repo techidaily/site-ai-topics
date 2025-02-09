@@ -1,7 +1,7 @@
 ---
 title: "From Vintage Inspiration to Modern Creation: Building an Authentic Clone of the Classic 1986 Macintosh+"
-date: 2025-01-23T01:25:18.992Z
-updated: 2025-01-28T04:38:13.001Z
+date: 2025-02-03T16:00:28.875Z
+updated: 2025-02-09T16:12:19.292Z
 tags:
   - desktop
 categories:
@@ -32,7 +32,7 @@ The 2024 World Server Throwing Championship (WSTC) organizers are[calling for en
  We think there is plenty of room for improvement on the 2022 winning throw. Remember, the world record distance for throwing a 16-pound shot put is nearly 75 feet. For another comparison, in the Swedish sport of Stångstörtning, a roughly 57-pound log is tossed, with the world record distance being 32 feet. Much will depend on how well-tuned and trained the WSTC 2024 athletes are…
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/aIx71tPaWKg?si=lG5OiUe-M6eBJf5b" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Q-mXUpVQijU?si=f1MzflPJ8-bD2_iQ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Stay On the Cutting Edge: Get the Tom's Hardware Newsletter
@@ -60,24 +60,17 @@ The 2024 World Server Throwing Championship (WSTC) organizers are[calling for en
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-data.techidaily.com/he-insiders-guide-to-fixing-popular-youtube-short-problems/"><u>[New] The Insider's Guide to Fixing Popular YouTube Short Problems</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/new-unfollowers-alert-on-your-instagram-map/"><u>[New] Unfollowers Alert on Your Instagram Map</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/ed-2024-approved-your-path-to-engaging-content-dive-into-our-free-youtube-ad-gallery/"><u>[Updated] 2024 Approved Your Path to Engaging Content – Dive Into Our Free YouTube Ad Gallery</u></a></li>
-<li><a href="https://ai-topics.techidaily.com/2024-approved-how-to-generate-speech-from-text-the-top-text-to-speech-converters/"><u>2024 Approved How To Generate Speech From Text | The Top Text-to-Speech Converters</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/docooler-usb-flash-drive-with-hd-camera-12-mp-is-it-worth-your-investment/"><u>Docooler USB Flash Drive with HD Camera (12 MP): Is It Worth Your Investment?</u></a></li>
-<li><a href="https://win11-tips.techidaily.com/elevate-your-gameplay-with-customized-amd-graphics-settings/"><u>Elevate Your Gameplay with Customized AMD Graphics Settings</u></a></li>
-<li><a href="https://ai-topics.techidaily.com/essential-tools-for-creating-dynamic-talking-avatars-for-2024/"><u>Essential Tools for Creating Dynamic Talking Avatars for 2024</u></a></li>
-<li><a href="https://screen-mirror.techidaily.com/how-to-mirror-pc-screen-to-realme-12plus-5g-phones-drfone-by-drfone-android/"><u>How to Mirror PC Screen to Realme 12+ 5G Phones? | Dr.fone</u></a></li>
-<li><a href="https://ai-topics.techidaily.com/in-2024-how-to-make-a-talking-ai-avatar-from-photos-easy-guide/"><u>In 2024, How to Make a Talking AI Avatar From Photos Easy Guide</u></a></li>
-<li><a href="https://ai-topics.techidaily.com/in-2024-the-best-tools-to-convert-text-to-mp3-with-the-best-natural-voices/"><u>In 2024, The Best Tools to Convert Text to MP3 With the Best Natural Voices</u></a></li>
-<li><a href="https://ai-topics.techidaily.com/make-your-pictures-speak-online-with-the-best-tools-recommended-for-2024/"><u>Make Your Pictures Speak Online With the Best Tools Recommended for 2024</u></a></li>
-<li><a href="https://ai-topics.techidaily.com/new-2024-approved-essential-tools-for-creating-dynamic-talking-avatars/"><u>New 2024 Approved Essential Tools for Creating Dynamic Talking Avatars</u></a></li>
-<li><a href="https://ai-topics.techidaily.com/new-in-depth-review-of-ivona-text-to-speech-converter-for-2024/"><u>New In-Depth Review of Ivona Text to Speech Converter for 2024</u></a></li>
-<li><a href="https://ai-topics.techidaily.com/new-what-is-an-ai-video-maker-in-2024/"><u>New What Is an AI Video Maker, In 2024</u></a></li>
-<li><a href="https://hardware-tips.techidaily.com/top-picks-s-ultimate-32-televisions-expert-recommendations-from-zdnet/"><u>Top Picks 'S Ultimate 32 Televisions - Expert Recommendations From ZDNet</u></a></li>
-<li><a href="https://some-skills.techidaily.com/unlocking-timer-power-with-zero-cost-for-2024/"><u>Unlocking Timer Power with Zero Cost for 2024</u></a></li>
-<li><a href="https://article-posts.techidaily.com/unveiling-the-most-economical-cloud-stores/"><u>Unveiling the Most Economical Cloud Stores</u></a></li>
-<li><a href="https://ai-topics.techidaily.com/updated-what-is-ai-voice-over/"><u>Updated What Is AI Voice Over?</u></a></li>
-<li><a href="https://fox-triigers.techidaily.com/windowshddcmd/"><u>Windows上でのHDDバックアップ:CMDを使った簡単なガイド</u></a></li>
+<li><a href="https://screen-recording.techidaily.com/new-2024-approved-from-dungeon-crawlers-to-complex-gameplay/"><u>[New] 2024 Approved From Dungeon Crawlers to Complex Gameplay</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/new-copyright-clarity-for-instagram-beats/"><u>[New] Copyright Clarity for Instagram Beats</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-2024-approved-complete-guide-to-crafting-killer-youtube-outros/"><u>[Updated] 2024 Approved Complete Guide to Crafting Killer YouTube Outros</u></a></li>
+<li><a href="https://iphone-unlock.techidaily.com/in-2024-complete-guide-on-unlocking-apple-iphone-8-with-a-broken-screen-drfone-by-drfone-ios/"><u>In 2024, Complete Guide on Unlocking Apple iPhone 8 with a Broken Screen? | Dr.fone</u></a></li>
+<li><a href="https://ai-topics.techidaily.com/new-in-2024-what-is-an-ai-script-generator/"><u>New In 2024, What Is an AI Script Generator?</u></a></li>
+<li><a href="https://ai-topics.techidaily.com/quasarrecovery-facility/"><u>QuasarRecovery Facility</u></a></li>
+<li><a href="https://techidaily.com/resolve-compile-error-in-hidden-module-in-excel-2003-causes-and-solutions-by-stellar-guide/"><u>Resolve Compile Error in Hidden Module in Excel 2003 Causes & Solutions</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/secrets-to-high-resolution-pics-on-deal/"><u>Secrets to High-Resolution Pics on Deal</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/unlock-iphonepcs-full-potential-with-these-top-8-converters-for-2024/"><u>Unlock iPhone/PC's Full Potential With These Top 8 Converters for 2024</u></a></li>
+<li><a href="https://ai-topics.techidaily.com/updated-2024-approved-the-power-of-ai-thumbnail-generators/"><u>Updated 2024 Approved The Power of AI Thumbnail Generators</u></a></li>
+<li><a href="https://ai-topics.techidaily.com/updated-2024-approved-top-5-best-tools-to-convert-text-to-audio-online-for-free/"><u>Updated 2024 Approved Top 5 Best Tools to Convert Text to Audio Online for Free</u></a></li>
+<li><a href="https://ai-live-streaming.techidaily.com/updated-in-2024-must-use-livestream-shopping-apps-for-seamless-online-system/"><u>Updated In 2024, Must-Use Livestream Shopping Apps for Seamless Online System</u></a></li>
 </ul></div>
 
