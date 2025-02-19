@@ -1,7 +1,7 @@
 ---
 title: "Experience Music Creation with Tulip: The Budget-Friendly MicroPython-Powered Computer - Only $59"
-date: 2025-02-04T16:10:05.001Z
-updated: 2025-02-09T16:13:21.572Z
+date: 2025-02-15T16:54:30.325Z
+updated: 2025-02-19T16:12:05.554Z
 tags:
   - desktop
 categories:
@@ -36,7 +36,7 @@ Over on Chinese videosharing platform Bilibili, user 苏打baka uploaded a lengt
  So, what happened? Did the static buildup short out the PC or something? Fortunately, nothing so mundane. Instead, the fan PC was tested at increasingly higher speeds until the[weighty cooler](https://www.tomshardware.com/news/noctua-fanless-cooler-enters-production) was violently flung from the PC in the last moments of the original video. No wonder Sodabaka hid behind a riot shield for much of the video demo.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/vFQCEZiYA08?si=xjIu5IAy77RlHWii" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LlYIdWQc-jw?si=ZQ5809CbQGEar0vg" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Stay On the Cutting Edge: Get the Tom's Hardware Newsletter
@@ -62,20 +62,24 @@ Over on Chinese videosharing platform Bilibili, user 苏打baka uploaded a lengt
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://vimeo-videos.techidaily.com/new-in-2024-unveiling-the-hidden-potential-of-earnings-on-vimeo-platforms/"><u>[New] In 2024, Unveiling the Hidden Potential of Earnings on Vimeo Platforms</u></a></li>
-<li><a href="https://fox-blue.techidaily.com/new-master-the-art-of-9gag-memes-tips-for-creativity-and-impact-for-2024/"><u>[New] Master the Art of 9GAG Memes Tips for Creativity and Impact for 2024</u></a></li>
-<li><a href="https://extra-information.techidaily.com/asmrs-good-side-benefits-revealed-now-for-2024/"><u>ASMR's Good Side Benefits Revealed Now for 2024</u></a></li>
-<li><a href="https://activate-lock.techidaily.com/bypass-icloud-activation-lock-with-imei-code-on-iphone-6-by-drfone-ios/"><u>Bypass iCloud Activation Lock with IMEI Code On iPhone 6</u></a></li>
-<li><a href="https://discover-deluxe.techidaily.com/des-astuces-pour-recuperer-vos-photosvideos-gopro-en-decalage-decran-lorsquelles-napparaissent-pas-sur-votre-pc/"><u>Des Astuces Pour Récupérer Vos Photos/Vidéos GoPro en Décalage D'écran Lorsqu'elles N'apparaissent Pas Sur Votre PC</u></a></li>
-<li><a href="https://facebook.techidaily.com/fb-transitioned-to-pure-renewable-power-source/"><u>FB Transitioned to Pure Renewable Power Source</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/in-2024-efficient-srt-to-sub-conversion-strategies/"><u>In 2024, Efficient SRT to SUB Conversion Strategies</u></a></li>
-<li><a href="https://some-guidance.techidaily.com/in-2024-unleashing-memories-above-ground-top-tier-cloud-options-reviewed/"><u>In 2024, Unleashing Memories Above Ground Top-Tier Cloud Options Reviewed</u></a></li>
-<li><a href="https://ai-topics.techidaily.com/new-2024-approved-ai-portrait-generator-getting-closer-to-the-artistic-marvels/"><u>New 2024 Approved AI Portrait Generator Getting Closer to the Artistic Marvels</u></a></li>
-<li><a href="https://ai-topics.techidaily.com/new-2024-approved-what-is-ai-marketing/"><u>New 2024 Approved What Is AI Marketing?</u></a></li>
-<li><a href="https://ai-topics.techidaily.com/new-in-2024-what-is-an-ai-art-generator/"><u>New In 2024, What Is an AI Art Generator?</u></a></li>
-<li><a href="https://win-best.techidaily.com/step-by-step-solutions-for-fixing-pc-hardware-glitches-on-windows-by-yl-experts/"><u>Step-by-Step Solutions for Fixing PC Hardware Glitches on Windows by YL Experts</u></a></li>
-<li><a href="https://ai-topics.techidaily.com/updated-2024-approved-the-best-text-to-speech-online-tools-to-use/"><u>Updated 2024 Approved The Best Text-to-Speech Online Tools To Use</u></a></li>
-<li><a href="https://ai-topics.techidaily.com/updated-in-2024-how-to-make-a-talking-ai-avatar-from-photos-easy-guide/"><u>Updated In 2024, How to Make a Talking AI Avatar From Photos Easy Guide</u></a></li>
-<li><a href="https://ai-topics.techidaily.com/what-is-an-ai-presentation-maker-for-2024/"><u>What Is an AI Presentation Maker for 2024</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/new-in-2024-vision-record-studio-2021/"><u>[New] In 2024, Vision Record Studio 2021</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ed-2024-approved-windows-movie-maker-the-ultimate-guide-to-youtube-video-production/"><u>[Updated] 2024 Approved Windows Movie Maker The Ultimate Guide to YouTube Video Production</u></a></li>
+<li><a href="https://vimeo-videos.techidaily.com/updated-essential-techniques-for-vimeo-video-submission-from-mmc-for-2024/"><u>[Updated] Essential Techniques for Vimeo Video Submission From MMC for 2024</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/15-best-strongest-pokemon-to-use-in-pokemon-go-pvp-leagues-for-vivo-t2-pro-5g-drfone-by-drfone-virtual-android/"><u>15 Best Strongest Pokémon To Use in Pokémon GO PvP Leagues For Vivo T2 Pro 5G | Dr.fone</u></a></li>
+<li><a href="https://apple-account.techidaily.com/how-to-fix-when-apple-account-locked-on-apple-iphone-15-pro-by-drfone-ios/"><u>How to Fix when Apple Account Locked On Apple iPhone 15 Pro?</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/how-to-reset-a-motorola-edge-40-pro-phone-that-is-locked-by-drfone-android/"><u>How to Reset a Motorola Edge 40 Pro Phone that is Locked?</u></a></li>
+<li><a href="https://ai-topics.techidaily.com/in-2024-ready-to-dive-into-photo-talking-videos-heres-what-you-need-to-know/"><u>In 2024, Ready To Dive Into Photo Talking Videos? Heres What You Need To Know</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/in-2024-superior-hd-video-capturing-choosing-premium-recorder-models/"><u>In 2024, Superior HD Video Capturing Choosing Premium Recorder Models</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/live-the-experience-top-4-ways-to-preserve-your-gaming-adventures-for-2024/"><u>Live the Experience Top 4 Ways to Preserve Your Gaming Adventures for 2024</u></a></li>
+<li><a href="https://ai-topics.techidaily.com/new-2024-approved-what-is-an-ai-tool/"><u>New 2024 Approved What Is an AI Tool?</u></a></li>
+<li><a href="https://techno-recovery.techidaily.com/top-4-beloved-free-digital-calendars-you-must-try/"><u>Top 4 Beloved Free Digital Calendars You Must Try</u></a></li>
+<li><a href="https://eaxpv-info.techidaily.com/top-choices-premier-video-cutting-tools-for-online-streaming-for-2024/"><u>Top Choices Premier Video Cutting Tools For Online Streaming for 2024</u></a></li>
+<li><a href="https://ai-topics.techidaily.com/updated-2024-approved-5-top-realistic-text-to-speech-ai-voice-generators-you-may-like/"><u>Updated 2024 Approved 5 Top Realistic Text to Speech AI Voice Generators You May Like</u></a></li>
+<li><a href="https://ai-topics.techidaily.com/updated-2024-approved-guide-to-generating-speech-in-different-languages-with-the-best-tools/"><u>Updated 2024 Approved Guide to Generating Speech in Different Languages With the Best Tools</u></a></li>
+<li><a href="https://ai-topics.techidaily.com/updated-2024-approved-what-is-an-ai-artist/"><u>Updated 2024 Approved What Is an AI Artist?</u></a></li>
+<li><a href="https://ai-topics.techidaily.com/updated-how-to-generate-speech-from-text-the-top-text-to-speech-converters-for-2024/"><u>Updated How To Generate Speech From Text | The Top Text-to-Speech Converters for 2024</u></a></li>
+<li><a href="https://ai-topics.techidaily.com/updated-the-recommended-natural-ai-hindi-voice-generator-for-2024/"><u>Updated The Recommended Natural AI Hindi Voice Generator for 2024</u></a></li>
+<li><a href="https://ai-topics.techidaily.com/updated-what-is-ai-pixel-art-generator-in-2024/"><u>Updated What Is AI Pixel Art Generator, In 2024</u></a></li>
+<li><a href="https://ai-topics.techidaily.com/what-is-an-ai-video-editor-in-2024/"><u>What Is an AI Video Editor, In 2024</u></a></li>
 </ul></div>
 
